@@ -25,7 +25,7 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-
+- [Syncing tabs via service worker](https://dev.to/jhamadhav/syncing-tabs-via-service-worker-ep7)
 <!-- BLOG-POST-LIST:END -->
 
 👉[more blog posts...](https://dev.to/jhamadhav/)
