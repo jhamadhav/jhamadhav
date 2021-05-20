@@ -17,9 +17,10 @@
 
 ### Connect with me:
 
-[<img align="left" alt="jhamadhav.com" width="22px" src="https://raw.githubusercontent.com/iconic/open-iconic/master/svg/globe.svg" />](https://jhamadhav.com)
-[<img align="left" alt="jhamadhav28 | Twitter" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />](https://twitter.com/jhamadhav28)
-[<img align="left" alt="jhamadhav | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />](https://www.linkedin.com/in/jhamadhav/)
+[<img align="left" alt="jhamadhav.com" width="22px" src="./media/logos/website.svg" />](https://jhamadhav.com)
+[<img align="left" alt="jhamadhav28 | Twitter" width="22px" src="./media/logos/twitter.svg" />](https://twitter.com/jhamadhav28)
+[<img align="left" alt="jhamadhav | LinkedIn" width="22px" src="./media/logos/linkedin.svg" />](https://www.linkedin.com/in/jhamadhav/)
+[<img align="left" alt="jhamadhav | LinkedIn" width="22px" src="./media/logos/dev.svg" />](https://dev.to/jhamadhav/)
 
 <br />
 
