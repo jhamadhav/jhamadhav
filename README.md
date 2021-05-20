@@ -3,6 +3,7 @@
 
 [![Website](./media/website.svg)](https://jhamadhav.com) 
 
+
 ## I'm a Student, Developer, and Open-Source enthusiast!!
 
 - 🔭 Check out my amazing firefox extension [Google Meet | Push To Talk](https://addons.mozilla.org/en-US/firefox/addon/google-push-to-talk/)
@@ -11,7 +12,6 @@
 - 🥅 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to play chess and badminton
 
-<br>
 
 ### Connect with me:
 
@@ -20,7 +20,7 @@
 [<img align="left" alt="jhamadhav | LinkedIn" width="22px" src="./media/logos/linkedin.svg" />](https://www.linkedin.com/in/jhamadhav/)
 [<img align="left" alt="jhamadhav | LinkedIn" width="26px" src="./media/logos/dev.svg" />](https://dev.to/jhamadhav/)
 
-<br />
+<br>
 
 ### 📕 Latest Blog Posts
 
@@ -28,4 +28,4 @@
 
 <!-- BLOG-POST-LIST:END -->
 
-➡️ [more blog posts...](https://dev.to/jhamadhav/)
+👉[more blog posts...](https://dev.to/jhamadhav/)
