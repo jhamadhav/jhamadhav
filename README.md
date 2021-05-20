@@ -12,7 +12,6 @@
 - 🥅 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to play chess and badminton <br>
 
----
 
 ### Connect with me:
 
@@ -21,7 +20,6 @@
 [<img align="left" alt="jhamadhav | LinkedIn" width="25px" src="./media/logos/linkedin.svg" />](https://www.linkedin.com/in/jhamadhav/)
 [<img align="left" alt="jhamadhav | LinkedIn" width="30px" src="./media/logos/dev.svg" />](https://dev.to/jhamadhav/) <br>
 
----
 
 ### 📕 Latest Blog Posts
 
