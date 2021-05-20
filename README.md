@@ -1,16 +1,32 @@
-### Hi there 👋
+### Hi there, I'm Madhav Jha 👋
+<br>
 
-<!--
-**jhamadhav/jhamadhav** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[![Website](./media/website.svg)](https://jhamadhav.com) 
 
-Here are some ideas to get you started:
+<br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## I'm a Student, Developer, and Open-Source enthusiast!!
+
+- 🔭 Check out my amazing firefox extension [Google Meet | Push To Talk](https://addons.mozilla.org/en-US/firefox/addon/google-push-to-talk/)
+- 🌱 I’m currently learning all the things that I like 🤣
+- 👯 I’m looking to connect with more people
+- 🥅 Goals: Contribute more to Open Source projects
+- ⚡ Fun fact: I love to play chess and badminton
+
+<br>
+
+### Connect with me:
+
+[<img align="left" alt="jhamadhav.com" width="22px" src="https://raw.githubusercontent.com/iconic/open-iconic/master/svg/globe.svg" />](https://jhamadhav.com)
+[<img align="left" alt="jhamadhav28 | Twitter" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />](https://twitter.com/jhamadhav28)
+[<img align="left" alt="jhamadhav | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />](https://www.linkedin.com/in/jhamadhav/)
+
+<br />
+
+### 📕 Latest Blog Posts
+
+<!-- BLOG-POST-LIST:START -->
+
+<!-- BLOG-POST-LIST:END -->
+
+➡️ [more blog posts...](https://dev.to/jhamadhav/)
