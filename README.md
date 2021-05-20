@@ -12,6 +12,8 @@
 - 🥅 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to play chess and badminton <br>
 
+---
+
 ### Connect with me:
 
 [<img align="left" alt="jhamadhav.com" width="25px" src="./media/logos/website.svg" />](https://jhamadhav.com)
@@ -19,8 +21,14 @@
 [<img align="left" alt="jhamadhav | LinkedIn" width="25px" src="./media/logos/linkedin.svg" />](https://www.linkedin.com/in/jhamadhav/)
 [<img align="left" alt="jhamadhav | LinkedIn" width="30px" src="./media/logos/dev.svg" />](https://dev.to/jhamadhav/) <br>
 
+---
+
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
 - [Syncing tabs via service worker](https://dev.to/jhamadhav/syncing-tabs-via-service-worker-ep7)
 <!-- BLOG-POST-LIST:END -->
+
+---
+
+[![Madhav's GitHub stats](https://github-readme-stats.vercel.app/api?username=jhamadhav)](https://github.com/anuraghazra/github-readme-stats)
