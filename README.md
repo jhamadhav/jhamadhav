@@ -10,22 +10,17 @@
 - 🌱 I’m currently learning all the things that I like 🤣
 - 👯 I’m looking to connect with more people
 - 🥅 Goals: Contribute more to Open Source projects
-- ⚡ Fun fact: I love to play chess and badminton
-
+- ⚡ Fun fact: I love to play chess and badminton <br>
 
 ### Connect with me:
 
-[<img align="left" alt="jhamadhav.com" width="22px" src="./media/logos/website.svg" />](https://jhamadhav.com)
-[<img align="left" alt="jhamadhav28 | Twitter" width="22px" src="./media/logos/twitter.svg" />](https://twitter.com/jhamadhav28)
-[<img align="left" alt="jhamadhav | LinkedIn" width="22px" src="./media/logos/linkedin.svg" />](https://www.linkedin.com/in/jhamadhav/)
-[<img align="left" alt="jhamadhav | LinkedIn" width="26px" src="./media/logos/dev.svg" />](https://dev.to/jhamadhav/)
-
-<br>
+[<img align="left" alt="jhamadhav.com" width="25px" src="./media/logos/website.svg" />](https://jhamadhav.com)
+[<img align="left" alt="jhamadhav28 | Twitter" width="25px" src="./media/logos/twitter.svg" />](https://twitter.com/jhamadhav28)
+[<img align="left" alt="jhamadhav | LinkedIn" width="25px" src="./media/logos/linkedin.svg" />](https://www.linkedin.com/in/jhamadhav/)
+[<img align="left" alt="jhamadhav | LinkedIn" width="30px" src="./media/logos/dev.svg" />](https://dev.to/jhamadhav/) <br>
 
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
 - [Syncing tabs via service worker](https://dev.to/jhamadhav/syncing-tabs-via-service-worker-ep7)
 <!-- BLOG-POST-LIST:END -->
-
-👉[more blog posts...](https://dev.to/jhamadhav/)
