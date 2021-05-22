@@ -29,7 +29,7 @@
 
 ---
 
-[![Madhav's GitHub stats](https://github-readme-stats.vercel.app/api?username=jhamadhav&bg_color=172030&title_color=b18bb1&show_icons=true&hide_border=true&text_color=fff&icon_color=cyan)](https://github.com/anuraghazra/github-readme-stats)
+[![Madhav's GitHub stats](https://github-readme-stats.vercel.app/api?username=jhamadhav&bg_color=172030&title_color=00FFFF&show_icons=true&hide_border=true&text_color=fff&icon_color=E0FFFF)](https://github.com/anuraghazra/github-readme-stats)
 
 ---
 
