@@ -1,6 +1,6 @@
-<center>
+<p align="center">
 <a target="_blank" href="https://jhamadhav.com/"><img src="./media/intro.gif"></img></a>
-</center>
+</p>
 
 ![visitors](https://visitor-badge-reloaded.herokuapp.com/badge?page_id=jhamadhav.jhamadhav&color=44CC11)
 
@@ -11,14 +11,15 @@
 - 👯 I’m looking to connect with more people
 - 🥅 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to play chess and badminton <br>
-<br>
+
+
 
 ## 📚 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
 - [Syncing tabs via service worker](https://dev.to/jhamadhav/syncing-tabs-via-service-worker-ep7)
 <!-- BLOG-POST-LIST:END -->
-<br>
+
 
 ---
 
