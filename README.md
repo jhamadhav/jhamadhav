@@ -1,5 +1,5 @@
 <p align="center">
-<a target="_blank" href="https://jhamadhav.com/"><img src="./media/intro.gif"></img></a>
+<a target="_blank" href="https://jhamadhav.com/" alt="Hi, there👋 I'm Madhav Jha"><img src="./media/intro.gif"></img></a>
 </p>
 
 ![visitors](https://visitor-badge-reloaded.herokuapp.com/badge?page_id=jhamadhav.jhamadhav&color=44CC11)
