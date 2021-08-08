@@ -8,9 +8,9 @@
 
 - 🔭 Check out my amazing firefox extension [Google Meet | Push To Talk](https://addons.mozilla.org/en-US/firefox/addon/google-push-to-talk/)
 - 🌱 I’m currently learning all the things that I like 🤣
-- 👯 I’m looking to connect with more people
+- 👯 Looking to connect with more people
 - 🥅 Goals: Contribute more to Open Source projects
-- ⚡ Fun fact: I love to play chess and badminton <br>
+- ⚡ Fun fact: I like to cook, play chess and badminton <br>
 
 
 
