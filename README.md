@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>And as we let our own light shine, we unconsciously give other people permission to do the same.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>I am always doing that which I cannot do, in order that I may learn how to do it.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
