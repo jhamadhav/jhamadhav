@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be great is to be misunderstood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>And as we let our own light shine, we unconsciously give other people permission to do the same.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
