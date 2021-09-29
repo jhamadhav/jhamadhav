@@ -30,13 +30,8 @@
 ![jhamadhav's GitHub activity graph](https://activity-graph.herokuapp.com/graph?username=jhamadhav&theme=rogue&hide_border=true&area=true)
 
 ---
-<p align="center">
-   <br>
-   <i>"Experience is the name everyone gives to their mistakes."</i>
-   <br>
-   <i>– Oscar Wilde.</i>
-   <br>
-<br>
+<!-- QUOTE:START -->
+<!-- QUOTE:END -->
 <a target="_blank" href="https://jhamadhav.com/"><img src="https://img.shields.io/badge/-WEB-FF4088?style=for-the-badge&logo=Hugo&logoColor=white"></img></a> &nbsp;
 <a target="_blank" href="https://www.linkedin.com/in/jhamadhav/"><img src="https://img.shields.io/badge/-LinkedIn-0077B5?style=for-the-badge&logo=Linkedin&logoColor=white"></img></a> &nbsp;
 <a target="_blank" href="https://dev.to/jhamadhav/"><img src="https://img.shields.io/badge/-dev-12100E?style=for-the-badge&logo=Medium&logoColor=white"></img></a> &nbsp;
