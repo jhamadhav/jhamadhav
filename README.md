@@ -33,6 +33,8 @@
 <!-- QUOTE:START -->
 <p align="center"><br><i>To be great is to be misunderstood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
+
+<p align="center">
 <a target="_blank" href="https://jhamadhav.com/"><img src="https://img.shields.io/badge/-WEB-FF4088?style=for-the-badge&logo=Hugo&logoColor=white"></img></a> &nbsp;
 <a target="_blank" href="https://www.linkedin.com/in/jhamadhav/"><img src="https://img.shields.io/badge/-LinkedIn-0077B5?style=for-the-badge&logo=Linkedin&logoColor=white"></img></a> &nbsp;
 <a target="_blank" href="https://dev.to/jhamadhav/"><img src="https://img.shields.io/badge/-dev-12100E?style=for-the-badge&logo=Medium&logoColor=white"></img></a> &nbsp;
