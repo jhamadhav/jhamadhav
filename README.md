@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am always doing that which I cannot do, in order that I may learn how to do it.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.</i><br><i>– Peter Drucker.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
