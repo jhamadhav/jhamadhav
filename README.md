@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The day of fortune is like a harvest day, we must be busy when the corn is ripe.</i><br><i>– Torquato Tasso.</i><br></p>
+<p align="center"><br><i>Positive thinking will let you do everything better than negative thinking will.</i><br><i>– Zig Ziglar.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
