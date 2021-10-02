@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We know the truth, not only by the reason, but by the heart.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.</i><br><i>– Anaïs Nin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
