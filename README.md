@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<a href="https://github.com/jhamadhav/quote-workflow" style="text-decoration:none;color:inherit;"><p align="center"><br><i>We must not say every mistake is a foolish one.</i><br><i>– Cicero.</i><br></p></a>
+<p align="center"><br><i>We know the truth, not only by the reason, but by the heart.</i><br><i>– Blaise Pascal.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
