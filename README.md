@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>Real magic in relationships means an absence of judgement of others.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
