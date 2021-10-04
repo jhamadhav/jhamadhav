@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man was ever wise by chance.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>It all depends on how we look at things, and not how they are in themselves.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
