@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is fatal to enter any war without the will to win it.</i><br><i>– Douglas MacArthur.</i><br></p>
+<p align="center"><br><i>I have not failed. I've just found 10,000 ways that won't work.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
