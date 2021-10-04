@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nobody will believe in you unless you believe in yourself.</i><br><i>– Liberace.</i><br></p>
+<p align="center"><br><i>It is fatal to enter any war without the will to win it.</i><br><i>– Douglas MacArthur.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
