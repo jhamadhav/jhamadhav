@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It all depends on how we look at things, and not how they are in themselves.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>Nobody will believe in you unless you believe in yourself.</i><br><i>– Liberace.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
