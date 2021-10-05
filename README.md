@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I can't believe that God put us on this earth to be ordinary.</i><br><i>– Lou Holtz.</i><br></p>
+<p align="center"><br><i>You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life.</i><br><i>– Ravi Zacharias.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
