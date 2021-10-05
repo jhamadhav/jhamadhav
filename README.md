@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The really unhappy person is the one who leaves undone what they can do, and starts doing what they don't understand; no wonder they come to grief.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>I can't believe that God put us on this earth to be ordinary.</i><br><i>– Lou Holtz.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
