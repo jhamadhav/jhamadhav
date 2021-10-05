@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have not failed. I've just found 10,000 ways that won't work.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>The really unhappy person is the one who leaves undone what they can do, and starts doing what they don't understand; no wonder they come to grief.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
