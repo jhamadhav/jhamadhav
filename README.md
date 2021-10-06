@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The universe is made of stories, not atoms.</i><br><i>– Muriel Rukeyser.</i><br></p>
+<p align="center"><br><i>Good advice is always certain to be ignored, but that's no reason not to give it.</i><br><i>– Agatha Christie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
