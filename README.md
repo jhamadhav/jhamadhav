@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Respect should be earned by actions, and not acquired by years.</i><br><i>– Frank Lloyd Wright.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
