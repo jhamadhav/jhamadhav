@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Anything you really want, you can attain, if you really go after it.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far.</i><br><i>– Swami Vivekananda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
