@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far.</i><br><i>– Swami Vivekananda.</i><br></p>
+<p align="center"><br><i>If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
