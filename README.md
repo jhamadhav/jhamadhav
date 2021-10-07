@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Respect should be earned by actions, and not acquired by years.</i><br><i>– Frank Lloyd Wright.</i><br></p>
+<p align="center"><br><i>No man is free who is not master of himself.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
