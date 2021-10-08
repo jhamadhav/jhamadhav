@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's not what you look at that matters, it's what you see.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>It has long been an axiom of mine that the little things are infinitely the most important.</i><br><i>– Arthur Conan Doyle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
