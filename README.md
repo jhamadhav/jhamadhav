@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Business, you know, may bring you money, but friendship hardly ever does.</i><br><i>– Jane Austen.</i><br></p>
+<p align="center"><br><i>An idea that is developed and put into action is more important than an idea that exists only as an idea.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
