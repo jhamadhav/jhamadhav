@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It has long been an axiom of mine that the little things are infinitely the most important.</i><br><i>– Arthur Conan Doyle.</i><br></p>
+<p align="center"><br><i>Friendship at first sight, like love at first sight, is said to be the only truth.</i><br><i>– Herman Melville.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
