@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An idea that is developed and put into action is more important than an idea that exists only as an idea.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Be less curious about people and more curious about ideas.</i><br><i>– Marie Curie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
