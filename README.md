@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fears are nothing more than a state of mind.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Keep your face always toward the sunshine - and shadows will fall behind you.</i><br><i>– Walt Whitman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
