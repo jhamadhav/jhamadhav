@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>May our hearts garden of awakening bloom with hundreds of flowers.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.</i><br><i>– Alfred Korzybski.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
