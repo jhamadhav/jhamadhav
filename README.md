@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The rule of friendship means there should be mutual sympathy between them, each supplying what the other lacks and trying to benefit the other, always using friendly and sincere words.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>The more you like yourself, the less you are like anyone else, which makes you unique.</i><br><i>– Walt Disney.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
