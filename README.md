@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friends show their love in times of trouble, not in happiness.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>Friendship, like the immortality of the soul, is too good to be believed.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
