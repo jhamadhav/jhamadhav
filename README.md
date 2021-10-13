@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Peace begins with a smile.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>Friends show their love in times of trouble, not in happiness.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
