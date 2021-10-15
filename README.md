@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To dare is to lose ones footing momentarily. To not dare is to lose oneself.</i><br><i>– Søren Kierkegaard.</i><br></p>
+<p align="center"><br><i>Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.</i><br><i>– Bernice Reagon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
