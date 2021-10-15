@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing great was ever achieved without enthusiasm.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>To dare is to lose ones footing momentarily. To not dare is to lose oneself.</i><br><i>– Søren Kierkegaard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
