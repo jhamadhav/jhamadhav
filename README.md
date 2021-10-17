@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.</i><br><i>– Mary Pickford.</i><br></p>
+<p align="center"><br><i>Your mind will answer most questions if you learn to relax and wait for the answer.</i><br><i>– William Burroughs.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
