@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your mind will answer most questions if you learn to relax and wait for the answer.</i><br><i>– William Burroughs.</i><br></p>
+<p align="center"><br><i>Friendship is an arrangement by which we undertake to exchange small favors for big ones.</i><br><i>– Montesquieu.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
