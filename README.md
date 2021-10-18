@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>They must often change, who would be constant in happiness or wisdom.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Silence is the sleep that nourishes wisdom.</i><br><i>– Francis Bacon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
