@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The wisest men follow their own direction.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.</i><br><i>– John F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
