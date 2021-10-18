@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence is the sleep that nourishes wisdom.</i><br><i>– Francis Bacon.</i><br></p>
+<p align="center"><br><i>The wisest men follow their own direction.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
