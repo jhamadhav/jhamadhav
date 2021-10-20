@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Successful people ask better questions, and as a result, they get better answers.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>I never think of the future. It comes soon enough.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
