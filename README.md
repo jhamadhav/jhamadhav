@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never think of the future. It comes soon enough.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Myths which are believed in tend to become true.</i><br><i>– George Orwell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
