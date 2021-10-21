@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest minds are capable of the greatest vices as well as of the greatest virtues.</i><br><i>– René Descartes.</i><br></p>
+<p align="center"><br><i>You cannot have what you do not want.</i><br><i>– John Acosta.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
