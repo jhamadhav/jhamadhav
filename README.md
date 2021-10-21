@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The minute you settle for less than you deserve, you get even less than you settled for.</i><br><i>– Maureen Dowd.</i><br></p>
+<p align="center"><br><i>Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
