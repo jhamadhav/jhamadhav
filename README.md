@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
+<p align="center"><br><i>To climb steep hills requires a slow pace at first.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
