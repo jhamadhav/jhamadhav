@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To climb steep hills requires a slow pace at first.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>Love is the only force capable of transforming an enemy into a friend.</i><br><i>– Martin Luther King Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
