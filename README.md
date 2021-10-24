@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have often regretted my speech, never my silence.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>Faith in oneself is the best and safest course.</i><br><i>– Michelangelo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
