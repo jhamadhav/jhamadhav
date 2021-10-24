@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Faith in oneself is the best and safest course.</i><br><i>– Michelangelo.</i><br></p>
+<p align="center"><br><i>Experience is not what happens to you; it's what you do with what happens to you.</i><br><i>– Aldous Huxley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
