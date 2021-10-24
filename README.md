@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Experience is not what happens to you; it's what you do with what happens to you.</i><br><i>– Aldous Huxley.</i><br></p>
+<p align="center"><br><i>An ant on the move does more than a dozing ox</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
