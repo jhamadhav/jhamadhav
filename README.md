@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The universe is full of magical things, patiently waiting for our wits to grow sharper.</i><br><i>– Eden Phillpotts.</i><br></p>
+<p align="center"><br><i>If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude.</i><br><i>– Colin Powell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
