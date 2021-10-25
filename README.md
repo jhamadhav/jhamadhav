@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude.</i><br><i>– Colin Powell.</i><br></p>
+<p align="center"><br><i>Friendship without self-interest is one of the rare and beautiful things of life.</i><br><i>– James F. Byrnes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
