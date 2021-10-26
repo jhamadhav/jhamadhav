@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Important principles may, and must, be inflexible.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>He is able who thinks he is able.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
