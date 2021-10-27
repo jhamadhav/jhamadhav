@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You've got to go out on a limb sometimes because that's where the fruit is.</i><br><i>– Will Rogers.</i><br></p>
+<p align="center"><br><i>Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.</i><br><i>– Theodore Isaac Rubin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
