@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No one has ever become poor by giving.</i><br><i>– Anne Frank.</i><br></p>
+<p align="center"><br><i>Never bend your head. Always hold it high. Look the world right in the eye.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
