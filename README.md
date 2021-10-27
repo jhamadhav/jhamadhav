@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never bend your head. Always hold it high. Look the world right in the eye.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>You've got to go out on a limb sometimes because that's where the fruit is.</i><br><i>– Will Rogers.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
