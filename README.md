@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.</i><br><i>– Theodore Isaac Rubin.</i><br></p>
+<p align="center"><br><i>If you don't know where you are going, you will probably end up somewhere else.</i><br><i>– Laurence J. Peter.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
