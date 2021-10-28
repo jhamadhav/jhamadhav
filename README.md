@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.</i><br><i>– Henri Bergson.</i><br></p>
+<p align="center"><br><i>It is a characteristic of wisdom not to do desperate things.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
