@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you don't know where you are going, you will probably end up somewhere else.</i><br><i>– Laurence J. Peter.</i><br></p>
+<p align="center"><br><i>Wisdom has its root in goodness, not goodness its root in wisdom.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
