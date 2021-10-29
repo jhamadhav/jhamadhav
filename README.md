@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nature takes away any faculty that is not used.</i><br><i>– William Inge.</i><br></p>
+<p align="center"><br><i>Every human being is the author of his own health or disease.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
