@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You have to do your own growing no matter how tall your grandfather was.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Three things cannot be long hidden: the sun, the moon, and the truth.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
