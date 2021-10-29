@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is a characteristic of wisdom not to do desperate things.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>Nature takes away any faculty that is not used.</i><br><i>– William Inge.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
