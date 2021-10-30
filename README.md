@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>A friendship founded on business is better than a business founded on friendship.</i><br><i>– John Locke.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
