@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Three things cannot be long hidden: the sun, the moon, and the truth.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.</i><br><i>– Pema Chödrön.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
