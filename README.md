@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never idealize others. They will never live up to your expectations.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
