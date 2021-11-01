@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you light a lamp for somebody, it will also brighten your path.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>To live a pure unselfish life, one must count nothing as one’s own in the midst of abundance.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
