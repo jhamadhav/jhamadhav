@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To live a pure unselfish life, one must count nothing as one’s own in the midst of abundance.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
