@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>He who is contented is rich.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
