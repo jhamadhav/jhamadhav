@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>We lost because we told ourselves we lost.</i><br><i>– Leo Tolstoy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
