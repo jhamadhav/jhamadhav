@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who is contented is rich.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.</i><br><i>– Albert Schweitzer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
