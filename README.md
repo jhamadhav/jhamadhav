@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whoever is happy will make others happy, too.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>The greatest way to live with honor in this world is to be what we pretend to be.</i><br><i>– Socrates.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
