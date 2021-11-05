@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.</i><br><i>– Jean-Paul Sartre.</i><br></p>
+<p align="center"><br><i>The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.</i><br><i>– Cecil B. DeMille.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
