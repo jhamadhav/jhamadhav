@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>While we stop to think, we often miss our opportunity.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
