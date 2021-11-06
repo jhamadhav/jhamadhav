@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Skill to do comes of doing.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>The most formidable weapon against errors of every kind is reason.</i><br><i>– Thomas Paine.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
