@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.</i><br><i>– Plutarch.</i><br></p>
+<p align="center"><br><i>Skill to do comes of doing.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
