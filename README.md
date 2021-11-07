@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Lose an hour in the morning, and you will spend all day looking for it.</i><br><i>– Richard Whately.</i><br></p>
+<p align="center"><br><i>Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.</i><br><i>– Julie Morgenstern.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
