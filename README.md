@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest mistake you can make in life is to be continually fearing you will make one.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>Lose an hour in the morning, and you will spend all day looking for it.</i><br><i>– Richard Whately.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
