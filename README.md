@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.</i><br><i>– Lou Holtz.</i><br></p>
+<p align="center"><br><i>People take different roads seeking fulfilment and happiness. Just because they’re not on your road doesn't mean they've gotten lost.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
