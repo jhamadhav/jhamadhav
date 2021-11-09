@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People take different roads seeking fulfilment and happiness. Just because they’re not on your road doesn't mean they've gotten lost.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Love is flower like; Friendship is like a sheltering tree.</i><br><i>– Samuel Taylor Coleridge.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
