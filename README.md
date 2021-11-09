@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is flower like; Friendship is like a sheltering tree.</i><br><i>– Samuel Taylor Coleridge.</i><br></p>
+<p align="center"><br><i>Happiness depends upon ourselves.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
