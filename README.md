@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just trust yourself, then you will know how to live.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>The only Zen you find on the tops of mountains is the Zen you bring up there.</i><br><i>– Robert M. Pirsig.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
