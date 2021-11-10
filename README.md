@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom often times consists of knowing what to do next.</i><br><i>– Herbert Hoover.</i><br></p>
+<p align="center"><br><i>Just trust yourself, then you will know how to live.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
