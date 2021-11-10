@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is nothing so useless as doing efficiently that which should not be done at all.</i><br><i>– Peter Drucker.</i><br></p>
+<p align="center"><br><i>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
