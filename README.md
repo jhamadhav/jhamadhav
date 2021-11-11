@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you find yourself in a hole, the first thing to do is stop digging.</i><br><i>– Will Rogers.</i><br></p>
+<p align="center"><br><i>One's friends are that part of the human race with which one can be human.</i><br><i>– George Santayana.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
