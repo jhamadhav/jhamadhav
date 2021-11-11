@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>When fate hands us a lemon, let’s try to make lemonade.</i><br><i>– Dale Carnegie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
