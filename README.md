@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When fate hands us a lemon, let’s try to make lemonade.</i><br><i>– Dale Carnegie.</i><br></p>
+<p align="center"><br><i>Every man is a volume if you know how to read him.</i><br><i>– William Ellery Channing.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
