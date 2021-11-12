@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One's friends are that part of the human race with which one can be human.</i><br><i>– George Santayana.</i><br></p>
+<p align="center"><br><i>There is no great genius without some touch of madness.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
