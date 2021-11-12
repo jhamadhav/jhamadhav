@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>None knows the weight of another's burden.</i><br><i>– George Herbert.</i><br></p>
+<p align="center"><br><i>Business, you know, may bring you money, but friendship hardly ever does.</i><br><i>– Jane Austen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
