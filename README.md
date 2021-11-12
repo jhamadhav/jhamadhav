@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no great genius without some touch of madness.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Keep your face always toward the sunshine - and shadows will fall behind you.</i><br><i>– Walt Whitman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
