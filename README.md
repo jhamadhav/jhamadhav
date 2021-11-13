@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Business, you know, may bring you money, but friendship hardly ever does.</i><br><i>– Jane Austen.</i><br></p>
+<p align="center"><br><i>Once you choose hope, anything’s possible.</i><br><i>– Christopher Reeve.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
