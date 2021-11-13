@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sometimes it is better to lose and do the right thing than to win and do the wrong thing.</i><br><i>– Tony Blair.</i><br></p>
+<p align="center"><br><i>Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.</i><br><i>– Robert Fulghum.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
