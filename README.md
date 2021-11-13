@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.</i><br><i>– Diogenes.</i><br></p>
+<p align="center"><br><i>Sometimes it is better to lose and do the right thing than to win and do the wrong thing.</i><br><i>– Tony Blair.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
