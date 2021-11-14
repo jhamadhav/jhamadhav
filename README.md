@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.</i><br><i>– Henry Ward Beecher.</i><br></p>
+<p align="center"><br><i>Nothing is softer or more flexible than water, yet nothing can resist it.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
