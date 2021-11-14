@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.</i><br><i>– Robert Fulghum.</i><br></p>
+<p align="center"><br><i>I can't believe that God put us on this earth to be ordinary.</i><br><i>– Lou Holtz.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
