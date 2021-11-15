@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together.</i><br><i>– Mariella Frostrup.</i><br></p>
+<p align="center"><br><i>Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
