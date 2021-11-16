@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sadness flies away on the wings of time.</i><br><i>– Jean de La Fontaine.</i><br></p>
+<p align="center"><br><i>The doorstep to the temple of wisdom is a knowledge of our own ignorance.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
