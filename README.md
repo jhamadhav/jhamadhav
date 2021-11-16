@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your attitude, not your aptitude, will determine your altitude.</i><br><i>– Zig Ziglar.</i><br></p>
+<p align="center"><br><i>Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
