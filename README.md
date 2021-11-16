@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The doorstep to the temple of wisdom is a knowledge of our own ignorance.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>Your attitude, not your aptitude, will determine your altitude.</i><br><i>– Zig Ziglar.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
