@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be slow to fall into friendship; but when thou art in, continue firm and constant.</i><br><i>– Isocrates.</i><br></p>
+<p align="center"><br><i>Sadness flies away on the wings of time.</i><br><i>– Jean de La Fontaine.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
