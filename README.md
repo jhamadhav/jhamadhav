@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Study the past, if you would divine the future.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.</i><br><i>– Theodore H. White.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
