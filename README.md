@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To enjoy life, we must touch much of it lightly.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>If you love someone, set them free. If they come back, they're yours; if they don’t, they never were.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
