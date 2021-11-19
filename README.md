@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>I hear and I forget. I see and I remember. I do and I understand.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
