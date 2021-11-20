@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life shrinks or expands in proportion to one's courage.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>It is impossible to experience one's death objectively and still carry a tune.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
