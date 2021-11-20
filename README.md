@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Much wisdom often goes with fewer words.</i><br><i>– Sophocles.</i><br></p>
+<p align="center"><br><i>To be tested is good. The challenged life may be the best therapist.</i><br><i>– Gail Sheehy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
