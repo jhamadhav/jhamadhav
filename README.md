@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you love someone, set them free. If they come back, they're yours; if they don’t, they never were.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Life shrinks or expands in proportion to one's courage.</i><br><i>– Anaïs Nin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
