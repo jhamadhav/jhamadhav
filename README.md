@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is impossible to experience one's death objectively and still carry a tune.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>Much wisdom often goes with fewer words.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
