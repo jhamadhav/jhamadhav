@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The possibilities are numerous once we decide to act and not react.</i><br><i>– George Bernard Shaw.</i><br></p>
+<p align="center"><br><i>Imagination is the living power and prime agent of all human perception.</i><br><i>– Samuel Taylor Coleridge.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
