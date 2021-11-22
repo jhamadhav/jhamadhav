@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The final proof of greatness lies in being able to endure criticism without resentment.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>What lies behind us and what lies before us are tiny matters compared to what lies within us.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
