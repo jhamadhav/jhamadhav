@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What lies behind us and what lies before us are tiny matters compared to what lies within us.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>It is in your moments of decision that your destiny is shaped.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
