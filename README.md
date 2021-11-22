@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is in your moments of decision that your destiny is shaped.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>People may doubt what you say, but they will believe what you do.</i><br><i>– Lewis Cass.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
