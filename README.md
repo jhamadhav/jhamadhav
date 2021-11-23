@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All serious daring starts from within.</i><br><i>– Harriet Beecher Stowe.</i><br></p>
+<p align="center"><br><i>Absence makes the heart grow fonder.</i><br><i>– Thomas Haynes Bayly.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
