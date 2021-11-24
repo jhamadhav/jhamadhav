@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Absence makes the heart grow fonder.</i><br><i>– Thomas Haynes Bayly.</i><br></p>
+<p align="center"><br><i>Cunning... is but the low mimic of wisdom.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
