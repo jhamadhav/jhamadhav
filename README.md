@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greater our knowledge increases the more our ignorance unfolds.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Everything you can imagine is real.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
