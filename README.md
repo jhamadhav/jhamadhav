@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Cunning... is but the low mimic of wisdom.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>The greater our knowledge increases the more our ignorance unfolds.</i><br><i>– John F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
