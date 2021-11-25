@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Difficulties are things that show a person what they are.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Courage is going from failure to failure without losing enthusiasm.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
