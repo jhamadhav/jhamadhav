@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have not failed. I've just found 10,000 ways that won't work.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom.</i><br><i>– Rumi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
