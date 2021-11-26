@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't smother each other. No one can grow in the shade.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>The free man is he who does not fear to go to the end of his thought.</i><br><i>– Léon Blum.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
