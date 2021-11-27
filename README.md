@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>So much technology, so little talent.</i><br><i>– Vernor Vinge.</i><br></p>
+<p align="center"><br><i>Friendship is a very taxing and arduous form of leisure activity.</i><br><i>– Mortimer J. Adler.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
