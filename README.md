@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Honesty is the first chapter in the book of wisdom.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>To want to be what one can be is purpose in life.</i><br><i>– Cynthia Ozick.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
