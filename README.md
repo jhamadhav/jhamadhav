@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is a very taxing and arduous form of leisure activity.</i><br><i>– Mortimer J. Adler.</i><br></p>
+<p align="center"><br><i>Honesty is the first chapter in the book of wisdom.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
