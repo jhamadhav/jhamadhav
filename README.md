@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>Life is what happens to you while you're busy making other plans.</i><br><i>– John Lennon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
