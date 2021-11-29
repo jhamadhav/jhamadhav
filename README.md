@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is what happens to you while you're busy making other plans.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
