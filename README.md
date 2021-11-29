@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You're never a loser until you quit trying.</i><br><i>– Mike Ditka.</i><br></p>
+<p align="center"><br><i>I'd rather regret the things I've done than regret the things I haven't done.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
