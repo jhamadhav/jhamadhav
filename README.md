@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.</i><br><i>– William Ellery Channing.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
