@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To choose what is difficult all one's days, as if it were easy, that is faith.</i><br><i>– W. H. Auden.</i><br></p>
+<p align="center"><br><i>Peace begins with a smile.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
