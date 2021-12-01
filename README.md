@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Peace begins with a smile.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues.</i><br><i>– Abigail Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
