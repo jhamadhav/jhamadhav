@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise men talk because they have something to say; fools, because they have to say something.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>Fear makes strangers of people who would be friends.</i><br><i>– Shirley MacLaine.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
