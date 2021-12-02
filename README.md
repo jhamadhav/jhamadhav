@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fear makes strangers of people who would be friends.</i><br><i>– Shirley MacLaine.</i><br></p>
+<p align="center"><br><i>First say to yourself what you would be; and then do what you have to do.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
