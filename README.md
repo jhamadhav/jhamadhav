@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Without hard work, nothing grows but weeds.</i><br><i>– Gordon Hinckley.</i><br></p>
+<p align="center"><br><i>Beware of missing chances; otherwise it may be altogether too late someday.</i><br><i>– Franz Liszt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
