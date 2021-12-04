@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In the end we retain from our studies only that which we practically apply.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.</i><br><i>– Robert Fulghum.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
