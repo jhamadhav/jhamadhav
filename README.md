@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Beware of missing chances; otherwise it may be altogether too late someday.</i><br><i>– Franz Liszt.</i><br></p>
+<p align="center"><br><i>Rare as is true love, true friendship is rarer.</i><br><i>– Jean de La Fontaine.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
