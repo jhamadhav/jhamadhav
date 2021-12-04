@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Rare as is true love, true friendship is rarer.</i><br><i>– Jean de La Fontaine.</i><br></p>
+<p align="center"><br><i>Never put off till tomorrow what you can do today.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
