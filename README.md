@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>By believing passionately in something that does not yet exist, we create it.</i><br><i>– Nikos Kazantzakis.</i><br></p>
+<p align="center"><br><i>The most successful people are those who are good at plan B.</i><br><i>– James A. Yorke.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
