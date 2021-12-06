@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most successful people are those who are good at plan B.</i><br><i>– James A. Yorke.</i><br></p>
+<p align="center"><br><i>We have committed the Golden Rule to memory; let us now commit it to life.</i><br><i>– Edwin Markham.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
