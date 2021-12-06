@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We have committed the Golden Rule to memory; let us now commit it to life.</i><br><i>– Edwin Markham.</i><br></p>
+<p align="center"><br><i>Study the past, if you would divine the future.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
