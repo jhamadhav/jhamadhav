@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Go for it now. The future is promised to no one.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Love isn't something you find. Love is something that finds you.</i><br><i>– Loretta Young.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
