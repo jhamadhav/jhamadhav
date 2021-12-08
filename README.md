@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love isn't something you find. Love is something that finds you.</i><br><i>– Loretta Young.</i><br></p>
+<p align="center"><br><i>Never mistake motion for action.</i><br><i>– Ernest Hemingway.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
