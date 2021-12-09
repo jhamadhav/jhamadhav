@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ask yourself the secret of your success. Listen to your answer and practice it.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>There are people who have money and people who are rich.</i><br><i>– Coco Chanel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
