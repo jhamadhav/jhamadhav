@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius.</i><br><i>– Wolfgang Amadeus Mozart.</i><br></p>
+<p align="center"><br><i>Ask yourself the secret of your success. Listen to your answer and practice it.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
