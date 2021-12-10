@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is the only force capable of transforming an enemy into a friend.</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>You are always free to change your mind and choose a different future, or a different past.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
