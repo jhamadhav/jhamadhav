@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no retirement for an artist, it's your way of living so there is no end to it.</i><br><i>– Henry Moore.</i><br></p>
+<p align="center"><br><i>Love is the only force capable of transforming an enemy into a friend.</i><br><i>– Martin Luther King Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
