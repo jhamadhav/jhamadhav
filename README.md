@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Pick battles big enough to matter, small enough to win.</i><br><i>– Jonathan Kozol.</i><br></p>
+<p align="center"><br><i>The less effort, the faster and more powerful you will be.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
