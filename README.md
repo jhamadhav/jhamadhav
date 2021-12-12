@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.</i><br><i>– Walter Benjamin.</i><br></p>
+<p align="center"><br><i>Computers are like bikinis. They save people a lot of guesswork.</i><br><i>– Sam Ewing.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
