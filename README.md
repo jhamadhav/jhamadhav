@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no way to prosperity, prosperity is the way.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>It's not what you look at that matters, it's what you see.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
