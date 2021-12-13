@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's not what you look at that matters, it's what you see.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>If you propose to speak, always ask yourself, is it true, is it necessary, is it kind.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
