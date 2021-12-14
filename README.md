@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never mistake activity for achievement.</i><br><i>– John Wooden.</i><br></p>
+<p align="center"><br><i>If the shoe doesn't fit, must we change the foot?</i><br><i>– Gloria Steinem.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
