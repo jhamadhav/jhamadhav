@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Victory belongs to the most persevering.</i><br><i>– Napoleon.</i><br></p>
+<p align="center"><br><i>Don't be afraid to go out on a limb. That's where the fruit is.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
