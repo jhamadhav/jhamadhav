@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be great is to be misunderstood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Applause is a receipt, not a bill.</i><br><i>– Dale Carnegie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
