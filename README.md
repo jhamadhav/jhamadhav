@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is impossible for a man to learn what he thinks he already knows.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>If you want your life to be more rewarding, you have to change the way you think.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
