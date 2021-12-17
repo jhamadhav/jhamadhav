@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want your life to be more rewarding, you have to change the way you think.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them.</i><br><i>– John C. Maxwell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
