@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is good even for old men to learn wisdom.</i><br><i>– Aeschylus.</i><br></p>
+<p align="center"><br><i>I want my friend to miss me as long as I miss him.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
