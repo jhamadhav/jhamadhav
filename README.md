@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them.</i><br><i>– John C. Maxwell.</i><br></p>
+<p align="center"><br><i>It is good even for old men to learn wisdom.</i><br><i>– Aeschylus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
