@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let us sacrifice our today so that our children can have a better tomorrow.</i><br><i>– A. P. J. Abdul Kalam.</i><br></p>
+<p align="center"><br><i>It is impossible to love and to be wise.</i><br><i>– Francis Bacon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
