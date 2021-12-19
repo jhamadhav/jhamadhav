@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing diminishes anxiety faster than action.</i><br><i>– Walter Inglis Anderson.</i><br></p>
+<p align="center"><br><i>Where there is charity and wisdom, there is neither fear nor ignorance.</i><br><i>– Francis of Assisi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
