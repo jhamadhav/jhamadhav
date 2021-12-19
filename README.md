@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You were not born a winner, and you were not born a loser. You are what you make yourself be.</i><br><i>– Lou Holtz.</i><br></p>
+<p align="center"><br><i>Let us sacrifice our today so that our children can have a better tomorrow.</i><br><i>– A. P. J. Abdul Kalam.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
