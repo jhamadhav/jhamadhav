@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What do we live for, if it is not to make life less difficult for each other?</i><br><i>– George Eliot.</i><br></p>
+<p align="center"><br><i>Nature gave us one tongue and two ears so we could hear twice as much as we speak.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
