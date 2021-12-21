@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.</i><br><i>– Charles Lamb.</i><br></p>
+<p align="center"><br><i>I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.</i><br><i>– Elisabeth Kübler-Ross.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
