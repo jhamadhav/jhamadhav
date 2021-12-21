@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The wisdom of the wise, and the experience of ages, may be preserved by quotation.</i><br><i>– Isaac D'Israeli.</i><br></p>
+<p align="center"><br><i>Either you run the day or the day runs you.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
