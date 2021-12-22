@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more you like yourself, the less you are like anyone else, which makes you unique.</i><br><i>– Walt Disney.</i><br></p>
+<p align="center"><br><i>I think and that is all that I am.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
