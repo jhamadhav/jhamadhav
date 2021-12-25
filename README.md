@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Excellence is not a skill. It is an attitude.</i><br><i>– Ralph Marston.</i><br></p>
+<p align="center"><br><i>The superior man blames himself. The inferior man blames others.</i><br><i>– Don Shula.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
