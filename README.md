@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology is teaching us to be human again.</i><br><i>– Simon Mainwaring.</i><br></p>
+<p align="center"><br><i>The language of friendship is not words but meanings.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
