@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.</i><br><i>– Joseph Roux.</i><br></p>
+<p align="center"><br><i>The thoughts we choose to think are the tools we use to paint the canvas of our lives.</i><br><i>– Louise Hay.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
