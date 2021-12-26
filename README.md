@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no great genius without some touch of madness.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Technology is teaching us to be human again.</i><br><i>– Simon Mainwaring.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
