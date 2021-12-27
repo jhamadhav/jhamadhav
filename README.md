@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never explain - your friends do not need it and your enemies will not believe you anyway.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>He who is fixed to a star does not change his mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
