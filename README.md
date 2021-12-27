@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The thoughts we choose to think are the tools we use to paint the canvas of our lives.</i><br><i>– Louise Hay.</i><br></p>
+<p align="center"><br><i>The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
