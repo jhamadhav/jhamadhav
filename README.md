@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is not one big cosmic meaning for all, there is only the meaning we each give to our life.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>I am not bothered by the fact that I am unknown. I am bothered when I do not know others.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
