@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.</i><br><i>– Bernice Reagon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
