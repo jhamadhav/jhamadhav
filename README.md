@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I prefer the folly of enthusiasm to the indifference of wisdom.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>True friendship can afford true knowledge. It does not depend on darkness and ignorance.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
