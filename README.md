@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Doing nothing is better than being busy doing nothing.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Excellence is to do a common thing in an uncommon way.</i><br><i>– Booker T. Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
