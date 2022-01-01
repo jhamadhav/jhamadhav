@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Excellence is to do a common thing in an uncommon way.</i><br><i>– Booker T. Washington.</i><br></p>
+<p align="center"><br><i>It is not so important to know everything as to appreciate what we learn.</i><br><i>– Hannah More.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
