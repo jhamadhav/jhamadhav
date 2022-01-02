@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
