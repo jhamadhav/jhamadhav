@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want.</i><br><i>– Muhammad Ali.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
