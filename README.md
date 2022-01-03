@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information?</i><br><i>– George Eliot.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
