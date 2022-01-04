@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't stop the waves, but you can learn to surf.</i><br><i>– Jon Kabat-Zinn.</i><br></p>
+<p align="center"><br><i>How wonderful it is that nobody need wait a single moment before starting to improve the world.</i><br><i>– Anne Frank.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
