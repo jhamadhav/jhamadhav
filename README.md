@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>You can't stop the waves, but you can learn to surf.</i><br><i>– Jon Kabat-Zinn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
