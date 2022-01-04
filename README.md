@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information?</i><br><i>– George Eliot.</i><br></p>
+<p align="center"><br><i>Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
