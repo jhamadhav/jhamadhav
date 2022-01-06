@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No person is your friend who demands your silence or denies your right to grow.</i><br><i>– Alice Walker.</i><br></p>
+<p align="center"><br><i>It isn't where you come from, it's where you're going that counts.</i><br><i>– Ella Fitzgerald.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
