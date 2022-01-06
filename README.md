@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>The fox has many tricks. The hedgehog has but one. But that is the best of all.</i><br><i>– Erasmus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
