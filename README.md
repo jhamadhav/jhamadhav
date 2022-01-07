@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>True friends stab you in the front.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>It is more shameful to distrust our friends than to be deceived by them.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
