@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</i><br><i>– Michael Jordan.</i><br></p>
+<p align="center"><br><i>One secret of success in life is for a man to be ready for his opportunity when it comes.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
