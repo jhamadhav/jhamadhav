@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The wisest men follow their own direction.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>The ladder of success is never crowded at the top.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
