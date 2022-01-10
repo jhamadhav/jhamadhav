@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise?</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>I think and that is all that I am.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
