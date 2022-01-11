@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An invasion of armies can be resisted, but not an idea whose time has come.</i><br><i>– Victor Hugo.</i><br></p>
+<p align="center"><br><i>To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect.</i><br><i>– Joan Didion.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
