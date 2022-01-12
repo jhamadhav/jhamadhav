@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When deeds and words are in accord, the whole world is transformed.</i><br><i>– Zhuang Zhou.</i><br></p>
+<p align="center"><br><i>Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.</i><br><i>– Theodore Isaac Rubin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
