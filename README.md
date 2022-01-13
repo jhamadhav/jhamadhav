@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing.</i><br><i>– Margaret Thatcher.</i><br></p>
+<p align="center"><br><i>Good luck is another name for tenacity of purpose.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
