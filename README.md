@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Can you imagine what I would do if I could do all I can?</i><br><i>– Sun Tzu.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
