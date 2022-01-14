@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Walking with a friend in the dark is better than walking alone in the light.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
