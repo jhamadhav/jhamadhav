@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when?</i><br><i>– Rabbi Hillel.</i><br></p>
+<p align="center"><br><i>We must learn our limits. We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
