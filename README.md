@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.</i><br><i>– Melody Beattie.</i><br></p>
+<p align="center"><br><i>Just trust yourself, then you will know how to live.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
