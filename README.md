@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must learn our limits. We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.</i><br><i>– Melody Beattie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
