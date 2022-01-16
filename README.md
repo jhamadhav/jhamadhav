@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Imagination will often carry us to worlds that never were. But without it we go nowhere.</i><br><i>– Carl Sagan.</i><br></p>
+<p align="center"><br><i>The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
