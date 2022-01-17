@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.</i><br><i>– Isaac Asimov.</i><br></p>
+<p align="center"><br><i>The exercise of an extraordinary gift is the supremist pleasure in life.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
