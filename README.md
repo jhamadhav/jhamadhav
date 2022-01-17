@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The exercise of an extraordinary gift is the supremist pleasure in life.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>Love doesn't make the world go round; love is what makes the ride worthwhile.</i><br><i>– Elizabeth Browning.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
