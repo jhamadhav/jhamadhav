@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you can't explain it simply, you don't understand it well enough.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.</i><br><i>– Isaac Asimov.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
