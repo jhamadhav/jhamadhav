@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love doesn't make the world go round; love is what makes the ride worthwhile.</i><br><i>– Elizabeth Browning.</i><br></p>
+<p align="center"><br><i>All of our technology is completely unnecessary to a happy life.</i><br><i>– Tom Hodgkinson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
