@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is blind; friendship closes its eyes.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
