@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is like a sewer. What you get out of it depends on what you put into it.</i><br><i>– Tom Lehrer.</i><br></p>
+<p align="center"><br><i>Friendship brings in a lot of honesty and trust into any relationship, especially a marriage.</i><br><i>– Farhan Akhtar.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
