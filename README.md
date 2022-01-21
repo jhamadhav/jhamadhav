@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The price of greatness is responsibility.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Technology is the campfire around which we tell our stories.</i><br><i>– Laurie Anderson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
