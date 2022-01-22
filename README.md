@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I destroy my enemies when I make them my friends.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>The wisest men follow their own direction.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
