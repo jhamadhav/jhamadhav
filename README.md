@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The great myth of our times is that technology is communication.</i><br><i>– Libby Larsen.</i><br></p>
+<p align="center"><br><i>We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity.</i><br><i>– Barbara De Angelis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
