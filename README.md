@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>All difficult things have their origin in that which is easy, and great things in that which is small.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
