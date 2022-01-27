@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Thought is the blossom; language the bud; action the fruit behind it.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Friendship is certainly the finest balm for the pangs of disappointed love.</i><br><i>– Jane Austen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
