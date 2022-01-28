@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man cannot be said to succeed in this life who does not satisfy one friend.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>I prefer the folly of enthusiasm to the indifference of wisdom.</i><br><i>– Anatole France.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
