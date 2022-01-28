@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I begin with an idea and then it becomes something else.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>A man cannot be said to succeed in this life who does not satisfy one friend.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
