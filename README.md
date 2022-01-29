@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I prefer the folly of enthusiasm to the indifference of wisdom.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>Trust only movement. Life happens at the level of events, not of words. Trust movement.</i><br><i>– Alfred Adler.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
