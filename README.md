@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do good by stealth, and blush to find it fame.</i><br><i>– Alexander Pope.</i><br></p>
+<p align="center"><br><i>The future is completely open, and we are writing it moment to moment.</i><br><i>– Pema Chödrön.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
