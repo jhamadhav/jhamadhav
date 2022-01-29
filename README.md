@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust only movement. Life happens at the level of events, not of words. Trust movement.</i><br><i>– Alfred Adler.</i><br></p>
+<p align="center"><br><i>Do good by stealth, and blush to find it fame.</i><br><i>– Alexander Pope.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
