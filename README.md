@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>O, what a tangled web we weave when first we practice to deceive!</i><br><i>– Walter Scott.</i><br></p>
+<p align="center"><br><i>The most technologically efficient machine that man has ever invented is the book.</i><br><i>– Northrop Frye.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
