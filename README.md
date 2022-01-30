@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>However rare true love may be, it is less so than true friendship.</i><br><i>– François de La Rochefoucauld.</i><br></p>
+<p align="center"><br><i>There are only two mistakes one can make along the road to truth; not going all the way, and not starting.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
