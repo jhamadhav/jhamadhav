@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are only two mistakes one can make along the road to truth; not going all the way, and not starting.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius.</i><br><i>– Wolfgang Amadeus Mozart.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
