@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most technologically efficient machine that man has ever invented is the book.</i><br><i>– Northrop Frye.</i><br></p>
+<p align="center"><br><i>No matter how hard the past, you can always begin again.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
