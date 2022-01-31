@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else; you are the one who gets burned.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part.</i><br><i>– Christopher Reeve.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
