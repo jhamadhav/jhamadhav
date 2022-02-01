@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday's home runs don't win today's games.</i><br><i>– Babe Ruth.</i><br></p>
+<p align="center"><br><i>Obstacles are those things you see when you take your eyes off the goal.</i><br><i>– Hannah More.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
