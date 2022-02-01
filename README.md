@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Obstacles are those things you see when you take your eyes off the goal.</i><br><i>– Hannah More.</i><br></p>
+<p align="center"><br><i>To profit from good advice requires more wisdom than to give it.</i><br><i>– Wilson Mizner.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
