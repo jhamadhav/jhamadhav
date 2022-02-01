@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To profit from good advice requires more wisdom than to give it.</i><br><i>– Wilson Mizner.</i><br></p>
+<p align="center"><br><i>Motivation is the art of getting people to do what you want them to do because they want to do it.</i><br><i>– Dwight D. Eisenhower.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
