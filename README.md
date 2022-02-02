@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is a progress, and not a station.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Let there be no purpose in friendship save the deepening of the spirit.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
