@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are three faithful friends - an old wife, an old dog, and ready money.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>If you find yourself in a hole, the first thing to do is stop digging.</i><br><i>– Will Rogers.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
