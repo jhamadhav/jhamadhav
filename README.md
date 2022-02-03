@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>True friendship ought never to conceal what it thinks.</i><br><i>– Jerome.</i><br></p>
+<p align="center"><br><i>Divide each difficulty into as many parts as is feasible and necessary to resolve it.</i><br><i>– René Descartes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
