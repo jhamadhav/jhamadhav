@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Divide each difficulty into as many parts as is feasible and necessary to resolve it.</i><br><i>– René Descartes.</i><br></p>
+<p align="center"><br><i>A person who never made a mistake never tried anything new.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
