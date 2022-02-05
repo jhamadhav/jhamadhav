@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want things to be different, perhaps the answer is to become different yourself.</i><br><i>– Norman Vincent Peale.</i><br></p>
+<p align="center"><br><i>Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.</i><br><i>– Eustace Budgell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
