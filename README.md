@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.</i><br><i>– Barack Obama.</i><br></p>
+<p align="center"><br><i>The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.</i><br><i>– William James.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
