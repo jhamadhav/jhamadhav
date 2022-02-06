@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Give whatever you are doing and whoever you are with the gift of your attention.</i><br><i>– Jim Rohn.</i><br></p>
+<p align="center"><br><i>To see things in the seed, that is genius.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
