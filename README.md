@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To see things in the seed, that is genius.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>A friend is someone who gives you total freedom to be yourself.</i><br><i>– Jim Morrison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
