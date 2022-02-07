@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend is someone who gives you total freedom to be yourself.</i><br><i>– Jim Morrison.</i><br></p>
+<p align="center"><br><i>If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
