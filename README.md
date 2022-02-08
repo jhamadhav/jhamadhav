@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't judge each day by the harvest you reap but by the seeds that you plant.</i><br><i>– Robert Louis Stevenson.</i><br></p>
+<p align="center"><br><i>Freedom is not worth having if it does not connote freedom to err.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
