@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The eye sees only what the mind is prepared to comprehend.</i><br><i>– Henri Bergson.</i><br></p>
+<p align="center"><br><i>There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
