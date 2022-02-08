@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>Don't judge each day by the harvest you reap but by the seeds that you plant.</i><br><i>– Robert Louis Stevenson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
