@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The sincere friends of this world are as ship lights in the stormiest of nights.</i><br><i>– Giotto.</i><br></p>
+<p align="center"><br><i>The best thing about the future is that it only comes one day at a time.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
