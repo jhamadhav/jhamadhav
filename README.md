@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The way is not in the sky. The way is in the heart.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Great minds discuss ideas; average minds discuss events; small minds discuss people.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
