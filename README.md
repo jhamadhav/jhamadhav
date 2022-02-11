@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is a perfume you cannot pour on others without getting a few drops on yourself.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.</i><br><i>– William Blake.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
