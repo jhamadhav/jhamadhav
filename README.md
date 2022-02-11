@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>I can't imagine a person becoming a success who doesn't give this game of life everything he's got.</i><br><i>– Walter Cronkite.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
