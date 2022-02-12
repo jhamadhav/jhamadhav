@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you can't explain it simply, you don't understand it well enough.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>In life, all good things come hard, but wisdom is the hardest to come by.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
