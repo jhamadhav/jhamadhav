@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The least of things with a meaning is worth more in life than the greatest of things without it.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.</i><br><i>– Zhuang Zhou.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
