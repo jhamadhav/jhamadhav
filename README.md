@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The heart has its reasons which reason knows not of.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.</i><br><i>– Jane Addams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
