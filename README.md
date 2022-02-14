@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day.</i><br><i>– John Wooden.</i><br></p>
+<p align="center"><br><i>That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.</i><br><i>– Martin Luther King Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
