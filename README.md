@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>True friendship is like sound health; the value of it is seldom known until it is lost.</i><br><i>– Charles Caleb Colton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
