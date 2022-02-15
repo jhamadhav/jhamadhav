@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A true friend is the most precious of all possessions and the one we take the least thought about acquiring.</i><br><i>– François de La Rochefoucauld.</i><br></p>
+<p align="center"><br><i>A little knowledge that acts is worth infinitely more than much knowledge that is idle.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
