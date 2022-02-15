@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A little knowledge that acts is worth infinitely more than much knowledge that is idle.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>He who knows himself is enlightened.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
