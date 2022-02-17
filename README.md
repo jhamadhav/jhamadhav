@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Take no thought of who is right or wrong or who is better than. Be not for or against.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand.</i><br><i>– Woodrow Wilson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
