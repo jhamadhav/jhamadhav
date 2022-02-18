@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.</i><br><i>– Rollo May.</i><br></p>
+<p align="center"><br><i>Do not go where the path may lead, go instead where there is no path and leave a trail.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
