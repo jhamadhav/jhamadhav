@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Success is getting what you want. Happiness is wanting what you get.</i><br><i>– Dale Carnegie.</i><br></p>
+<p align="center"><br><i>Doing nothing is better than being busy doing nothing.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
