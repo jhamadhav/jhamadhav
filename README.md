@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.</i><br><i>– Charles Kingsley.</i><br></p>
+<p align="center"><br><i>Success is getting what you want. Happiness is wanting what you get.</i><br><i>– Dale Carnegie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
