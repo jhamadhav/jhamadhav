@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I think people who are creative are the luckiest people on earth. I know that there are no shortcuts, but you must keep your faith in something Greater than you and keep doing what you love. Do what you love, and you will find the way to get it out to the world.</i><br><i>– Judy Collins.</i><br></p>
+<p align="center"><br><i>It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.</i><br><i>– Charles Kingsley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
