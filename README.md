@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.</i><br><i>– Hanya Yanagihara.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
