@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>However many holy words you read, however many you speak, what good will they do you if you do not act on upon them?</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>And when the world is created, it is created in such a way that those eternal objects of God's loving wisdom become actualities - interacting with one another, relating to God in the finite realm.</i><br><i>– Rowan Williams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
