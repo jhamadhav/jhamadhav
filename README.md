@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.</i><br><i>– Hanya Yanagihara.</i><br></p>
+<p align="center"><br><i>However many holy words you read, however many you speak, what good will they do you if you do not act on upon them?</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
