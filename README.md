@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Only when we are no longer afraid do we begin to live.</i><br><i>– Dorothy Thompson.</i><br></p>
+<p align="center"><br><i>The world makes way for the man who knows where he is going.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
