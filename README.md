@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The world is round so that friendship may encircle it.</i><br><i>– Pierre Teilhard de Chardin.</i><br></p>
+<p align="center"><br><i>Obstacles are those frightful things you see when you take your eyes off your goal.</i><br><i>– Henry Ford.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
