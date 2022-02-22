@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You always succeed in producing a result.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>I know not age, nor weariness nor defeat.</i><br><i>– Rose Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
