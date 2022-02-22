@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I know not age, nor weariness nor defeat.</i><br><i>– Rose Kennedy.</i><br></p>
+<p align="center"><br><i>The world is round so that friendship may encircle it.</i><br><i>– Pierre Teilhard de Chardin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
