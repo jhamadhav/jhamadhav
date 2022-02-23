@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.</i><br><i>– Harvey Mackay.</i><br></p>
+<p align="center"><br><i>To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
