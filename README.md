@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those who cannot learn from history are doomed to repeat it.</i><br><i>– George Santayana.</i><br></p>
+<p align="center"><br><i>When you learn, teach. When you get, give.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
