@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The winner ain't the one with the fastest car it's the one who refuses to lose.</i><br><i>– Dale Earnhardt.</i><br></p>
+<p align="center"><br><i>The rule of friendship means there should be mutual sympathy between them, each supplying what the other lacks and trying to benefit the other, always using friendly and sincere words.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
