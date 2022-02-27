@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is more wisdom in your body than in your deepest philosophy.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>Your work is to discover your work and then with all your heart to give yourself to it.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
