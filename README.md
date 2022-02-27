@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your work is to discover your work and then with all your heart to give yourself to it.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Sincerity is the way of Heaven. The attainment of sincerity is the way of men.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
