@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.</i><br><i>– Mary Pickford.</i><br></p>
+<p align="center"><br><i>First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
