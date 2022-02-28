@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Do not wait for leaders; do it alone, person to person.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
