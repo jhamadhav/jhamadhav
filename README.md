@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not wait for leaders; do it alone, person to person.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>The energy of the mind is the essence of life.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
