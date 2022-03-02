@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Logic will get you from A to B. Imagination will take you everywhere.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.</i><br><i>– Niccolò Machiavelli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
