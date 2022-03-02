@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.</i><br><i>– Niccolò Machiavelli.</i><br></p>
+<p align="center"><br><i>Our greatness lies not so much in being able to remake the world as being able to remake ourselves.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
