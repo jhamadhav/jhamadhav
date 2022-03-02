@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our greatness lies not so much in being able to remake the world as being able to remake ourselves.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>History will be kind to me for I intend to write it.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
