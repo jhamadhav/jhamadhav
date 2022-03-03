@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The final proof of greatness lies in being able to endure criticism without resentment.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>The fox has many tricks. The hedgehog has but one. But that is the best of all.</i><br><i>– Erasmus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
