@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>As we are liberated from our own fear, our presence automatically liberates others.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>Friendship without self-interest is one of the rare and beautiful things of life.</i><br><i>– James F. Byrnes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
