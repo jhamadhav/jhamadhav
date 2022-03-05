@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good luck is another name for tenacity of purpose.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>As we are liberated from our own fear, our presence automatically liberates others.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
