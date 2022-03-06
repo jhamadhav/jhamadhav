@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life isn't about finding yourself. Life is about creating yourself.</i><br><i>– Bernard Shaw.</i><br></p>
+<p align="center"><br><i>It is not wisdom but Authority that makes a law.</i><br><i>– Thomas Hobbes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
