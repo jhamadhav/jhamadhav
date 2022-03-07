@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Arriving at one point is the starting point to another.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.</i><br><i>– Charles Darwin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
