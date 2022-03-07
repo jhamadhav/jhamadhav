@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The time to repair the roof is when the sun is shining.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
