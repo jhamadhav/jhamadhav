@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Arriving at one point is the starting point to another.</i><br><i>– John Dewey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
