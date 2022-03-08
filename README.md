@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The past has no power to stop you from being present now. Only your grievance about the past can do that.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.</i><br><i>– Melody Beattie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
