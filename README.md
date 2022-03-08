@@ -4,12 +4,12 @@
 
 ![visitors](https://visitor-badge-reloaded.herokuapp.com/badge?page_id=jhamadhav.jhamadhav&color=44CC11)
 
-## 📢 I'm a Student, Developer, and Open-Source enthusiast!!
+## 📢 I'm a Student, Developer, and not a Robot🤖!!
 
 - 🔭 Check out my amazing firefox extension [Google Meet | Push To Talk](https://addons.mozilla.org/en-US/firefox/addon/google-push-to-talk/)
 - 🌱 I’m currently learning all the things that I like 🤣
 - 👯 Looking to connect with more people
-- 🥅 Goals: Contribute more to Open Source projects
+- 🥅 Goals: Get better at problem solving
 - ⚡ Fun fact: I like to cook, play chess and badminton <br>
 
 
