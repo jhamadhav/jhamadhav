@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.</i><br><i>– Melody Beattie.</i><br></p>
+<p align="center"><br><i>To be happy is to be able to become aware of oneself without fright.</i><br><i>– Walter Benjamin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
