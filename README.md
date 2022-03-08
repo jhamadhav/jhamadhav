@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.</i><br><i>– Charles Darwin.</i><br></p>
+<p align="center"><br><i>The past has no power to stop you from being present now. Only your grievance about the past can do that.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
