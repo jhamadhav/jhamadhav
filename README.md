@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All I required to be happy was friendship and people I could admire.</i><br><i>– Christian Dior.</i><br></p>
+<p align="center"><br><i>I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
