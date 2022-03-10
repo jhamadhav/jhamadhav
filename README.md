@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The mind unlearns with difficulty what it has long learned.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Even if you're on the right track, you'll get run over if you just sit there.</i><br><i>– Will Rogers.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
