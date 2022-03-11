@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness.</i><br><i>– Rumi.</i><br></p>
+<p align="center"><br><i>Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.</i><br><i>– Elie Wiesel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
