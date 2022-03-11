@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Even if you're on the right track, you'll get run over if you just sit there.</i><br><i>– Will Rogers.</i><br></p>
+<p align="center"><br><i>All know the way; few actually walk it.</i><br><i>– Bodhidharma.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
