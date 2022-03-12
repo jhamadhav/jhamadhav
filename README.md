@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sadness flies away on the wings of time.</i><br><i>– Jean de La Fontaine.</i><br></p>
+<p align="center"><br><i>To fly as fast as thought, you must begin by knowing that you have already arrived.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
