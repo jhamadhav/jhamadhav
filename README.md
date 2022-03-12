@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To fly as fast as thought, you must begin by knowing that you have already arrived.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Our passion is our strength.</i><br><i>– Billie Armstrong.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
