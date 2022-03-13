@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>Be your own hero, it's cheaper than a movie ticket.</i><br><i>– Doug Horton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
