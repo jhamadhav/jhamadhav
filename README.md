@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody.</i><br><i>– Herbert Bayard Swope.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
