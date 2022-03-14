@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be your own hero, it's cheaper than a movie ticket.</i><br><i>– Doug Horton.</i><br></p>
+<p align="center"><br><i>Fear makes strangers of people who would be friends.</i><br><i>– Shirley MacLaine.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
