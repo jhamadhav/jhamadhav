@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is better to understand a little than to misunderstand a lot.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.</i><br><i>– Peter Abelard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
