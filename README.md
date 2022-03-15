@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man is great by deeds, not by birth.</i><br><i>– Chanakya.</i><br></p>
+<p align="center"><br><i>It is better to understand a little than to misunderstand a lot.</i><br><i>– Anatole France.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
