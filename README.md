@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.</i><br><i>– Peter Abelard.</i><br></p>
+<p align="center"><br><i>The meaning I picked, the one that changed my life: Overcome fear, behold wonder.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
