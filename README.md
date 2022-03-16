@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Know, first, who you are, and then adorn yourself accordingly.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Nothing is softer or more flexible than water, yet nothing can resist it.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
