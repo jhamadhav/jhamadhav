@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.</i><br><i>– Zhuang Zhou.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
