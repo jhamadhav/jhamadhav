@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.</i><br><i>– Zhuang Zhou.</i><br></p>
+<p align="center"><br><i>Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.</i><br><i>– Lord Byron.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
