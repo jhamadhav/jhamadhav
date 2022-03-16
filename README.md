@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.</i><br><i>– Lord Byron.</i><br></p>
+<p align="center"><br><i>Know, first, who you are, and then adorn yourself accordingly.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
