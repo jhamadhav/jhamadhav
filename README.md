@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no way to happiness, happiness is the way.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>I believe that we are fundamentally the same and have the same basic potential.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
