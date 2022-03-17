@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To want to be what one can be is purpose in life.</i><br><i>– Cynthia Ozick.</i><br></p>
+<p align="center"><br><i>I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best.</i><br><i>– Marilyn Monroe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
