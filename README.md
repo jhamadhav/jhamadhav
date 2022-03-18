@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each day provides its own gifts.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>Everyone has been made for some particular work, and the desire for that work has been put in every heart.</i><br><i>– Rumi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
