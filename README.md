@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control.</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>The world is a book, and those who do not travel read only a page.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
