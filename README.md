@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The world is a book, and those who do not travel read only a page.</i><br><i>– Augustine of Hippo.</i><br></p>
+<p align="center"><br><i>To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.</i><br><i>– Muhammad Ali.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
