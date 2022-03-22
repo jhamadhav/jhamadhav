@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He is able who thinks he is able.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>All serious daring starts from within.</i><br><i>– Harriet Beecher Stowe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
