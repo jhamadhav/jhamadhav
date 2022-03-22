@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>A man is not old as long as he is seeking something.</i><br><i>– Edmond Rostand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
