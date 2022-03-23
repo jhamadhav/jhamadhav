@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man is not old as long as he is seeking something.</i><br><i>– Edmond Rostand.</i><br></p>
+<p align="center"><br><i>Most of the shadows of life are caused by standing in our own sunshine.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
