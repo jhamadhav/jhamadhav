@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most of the shadows of life are caused by standing in our own sunshine.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>There is more wisdom in your body than in your deepest philosophy.</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
