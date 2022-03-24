@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life's most persistent and urgent question is, 'What are you doing for others?'</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>When fate hands us a lemon, let's try to make lemonade.</i><br><i>– Dale Carnegie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
