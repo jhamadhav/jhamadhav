@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When fate hands us a lemon, let's try to make lemonade.</i><br><i>– Dale Carnegie.</i><br></p>
+<p align="center"><br><i>Adversity causes some men to break, others to break records.</i><br><i>– William Arthur Ward.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
