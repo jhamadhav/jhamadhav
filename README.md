@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Science and technology revolutionize our lives, but memory, tradition and myth frame our response.</i><br><i>– Arthur M. Schlesinger Jr..</i><br></p>
+<p align="center"><br><i>He who hath many friends hath none.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
