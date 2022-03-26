@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>Friendship may, and often does, grow into love, but love never subsides into friendship.</i><br><i>– Lord Byron.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
