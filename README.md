@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The years teach much which the days never know.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Impossibilities are merely things which we have not yet learned.</i><br><i>– Charles W. Chesnutt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
