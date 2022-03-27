@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Impossibilities are merely things which we have not yet learned.</i><br><i>– Charles W. Chesnutt.</i><br></p>
+<p align="center"><br><i>Everything that irritates us about others can lead us to an understanding of ourselves.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
