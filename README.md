@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'll prepare and someday my chance will come.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>When deeds and words are in accord, the whole world is transformed.</i><br><i>– Zhuang Zhou.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
