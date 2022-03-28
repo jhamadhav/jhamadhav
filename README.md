@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust your hunches. They're usually based on facts filed away just below the conscious level.</i><br><i>– Joyce Brothers.</i><br></p>
+<p align="center"><br><i>The journey of a thousand miles begins with one step.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
