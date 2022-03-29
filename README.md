@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An invasion of armies can be resisted, but not an idea whose time has come.</i><br><i>– Victor Hugo.</i><br></p>
+<p align="center"><br><i>The ultimate promise of technology is to make us master of a world that we command by the push of a button.</i><br><i>– Volker Grassmuck.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
