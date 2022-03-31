@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Problems are only opportunities with thorns on them.</i><br><i>– Hugh Miller.</i><br></p>
+<p align="center"><br><i>Each misfortune you encounter will carry in it the seed of tomorrows good luck.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
