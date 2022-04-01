@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
+<p align="center"><br><i>The best way to predict your future is to create it.</i><br><i>– Peter Drucker.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
