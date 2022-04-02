@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is a very taxing and arduous form of leisure activity.</i><br><i>– Mortimer J. Adler.</i><br></p>
+<p align="center"><br><i>Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.</i><br><i>– Nathaniel Hawthorne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
