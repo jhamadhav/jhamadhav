@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best way to predict your future is to create it.</i><br><i>– Peter Drucker.</i><br></p>
+<p align="center"><br><i>Everything you are against weakens you. Everything you are for empowers you.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
