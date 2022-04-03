@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.</i><br><i>– Nathaniel Hawthorne.</i><br></p>
+<p align="center"><br><i>When you meet someone better than yourself, turn your thoughts to becoming his equal. When you meet someone not as good as you are, look within and examine your own self.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
