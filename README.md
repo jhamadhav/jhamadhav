@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you meet someone better than yourself, turn your thoughts to becoming his equal. When you meet someone not as good as you are, look within and examine your own self.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.</i><br><i>– Eknath Easwaran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
