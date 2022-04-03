@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.</i><br><i>– Eknath Easwaran.</i><br></p>
+<p align="center"><br><i>Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.</i><br><i>– Henry Wadsworth Longfellow.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
