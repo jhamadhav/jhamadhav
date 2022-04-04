@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Go to your bosom: Knock there and ask your heart what it doth know.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity.</i><br><i>– Barbara De Angelis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
