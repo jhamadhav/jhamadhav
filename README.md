@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity.</i><br><i>– Barbara De Angelis.</i><br></p>
+<p align="center"><br><i>All our knowledge has its origins in our perceptions.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
