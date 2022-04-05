@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>So long as a person is capable of self-renewal they are a living being.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
+<p align="center"><br><i>He who is contented is rich.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
