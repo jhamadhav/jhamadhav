@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>So long as a person is capable of self-renewal they are a living being.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
