@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An invasion of armies can be resisted, but not an idea whose time has come.</i><br><i>– Victor Hugo.</i><br></p>
+<p align="center"><br><i>Programs must be written for people to read, and only incidentally for machines to execute.</i><br><i>– Hal Abelson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
