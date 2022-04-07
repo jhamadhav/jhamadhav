@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't be afraid to go out on a limb. That's where the fruit is.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
+<p align="center"><br><i>I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.</i><br><i>– Plutarch.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
