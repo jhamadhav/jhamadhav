@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not uncommon for people to spend their whole life waiting to start living.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>I have an everyday religion that works for me. Love yourself first, and everything else falls into line.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
