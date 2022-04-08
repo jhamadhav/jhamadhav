@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.</i><br><i>– Plutarch.</i><br></p>
+<p align="center"><br><i>Remember that a gesture of friendship, no matter how small, is always appreciated.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
