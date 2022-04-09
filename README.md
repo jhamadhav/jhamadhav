@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Dost thou love life? Then do not squander time, for that is the stuff life is made of.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>One of the advantages of being disorderly is that one is constantly making exciting discoveries.</i><br><i>– A. A. Milne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
