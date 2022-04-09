@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.</i><br><i>– Salman Rushdie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
