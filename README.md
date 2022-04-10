@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise men talk because they have something to say; fools, because they have to say something.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>Happiness is a perfume you cannot pour on others without getting a few drops on yourself.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
