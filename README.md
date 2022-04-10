@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.</i><br><i>– Salman Rushdie.</i><br></p>
+<p align="center"><br><i>Wise men talk because they have something to say; fools, because they have to say something.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
