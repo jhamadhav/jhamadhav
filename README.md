@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.</i><br><i>– Elie Wiesel.</i><br></p>
+<p align="center"><br><i>The real problem is not whether machines think but whether men do.</i><br><i>– B. F. Skinner.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
