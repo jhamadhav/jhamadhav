@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Allow the world to live as it chooses, and allow yourself to live as you choose.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.</i><br><i>– Elie Wiesel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
