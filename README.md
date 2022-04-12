@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change in all things is sweet.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Ideals are an imaginative understanding of that which is desirable in that which is possible.</i><br><i>– Walter Lippmann.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
