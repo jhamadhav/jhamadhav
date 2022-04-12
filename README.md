@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are what we think. All that we are arises with our thoughts. With our thoughts, we make the world.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>It is easier to live through someone else than to become complete yourself.</i><br><i>– Betty Friedan.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
