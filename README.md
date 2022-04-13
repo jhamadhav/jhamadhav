@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want your life to be more rewarding, you have to change the way you think.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Logic will get you from A to B. Imagination will take you everywhere.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
