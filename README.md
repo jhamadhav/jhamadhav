@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Logic will get you from A to B. Imagination will take you everywhere.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>If one does not know to which port is sailing, no wind is favorable.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
