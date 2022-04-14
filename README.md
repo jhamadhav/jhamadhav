@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>Nature gave us one tongue and two ears so we could hear twice as much as we speak.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
