@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man is modest in his speech but exceeds in his actions.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.</i><br><i>– Booker T. Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
