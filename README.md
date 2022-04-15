@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who lives in harmony with himself lives in harmony with the world.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>There is no way to happiness, happiness is the way.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
