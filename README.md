@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be slow of tongue and quick of eye.</i><br><i>– Miguel de Cervantes.</i><br></p>
+<p align="center"><br><i>Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
