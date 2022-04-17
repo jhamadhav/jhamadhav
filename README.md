@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.</i><br><i>– Denis Waitley.</i><br></p>
+<p align="center"><br><i>Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.</i><br><i>– Nikola Tesla.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
