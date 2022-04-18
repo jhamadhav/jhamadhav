@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The fall of dropping water wears away the Stone.</i><br><i>– Lucretius.</i><br></p>
+<p align="center"><br><i>We can change our lives. We can do, have, and be exactly what we wish.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
