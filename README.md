@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.</i><br><i>– Niccolò Machiavelli.</i><br></p>
+<p align="center"><br><i>By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
