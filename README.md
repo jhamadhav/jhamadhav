@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always remember that you are absolutely unique. Just like everyone else.</i><br><i>– Margaret Mead.</i><br></p>
+<p align="center"><br><i>The most successful people are those who are good at plan B.</i><br><i>– James A. Yorke.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
