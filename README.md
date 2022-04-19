@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You have enemies? Good. That means you've stood up for something, sometime in your life.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.</i><br><i>– Simone de Beauvoir.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
