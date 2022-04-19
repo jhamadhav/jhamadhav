@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing is softer or more flexible than water, yet nothing can resist it.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Always remember that you are absolutely unique. Just like everyone else.</i><br><i>– Margaret Mead.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
