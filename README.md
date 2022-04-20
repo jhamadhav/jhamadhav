@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nine-tenths of wisdom is being wise in time.</i><br><i>– Theodore Roosevelt.</i><br></p>
+<p align="center"><br><i>The man of knowledge must be able not only to love his enemies but also to hate his friends.</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
