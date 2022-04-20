@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most successful people are those who are good at plan B.</i><br><i>– James A. Yorke.</i><br></p>
+<p align="center"><br><i>How far that little candle throws its beams! So shines a good deed in a naughty world.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
