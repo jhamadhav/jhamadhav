@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is the reward we get for living to the highest right we know.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Nine-tenths of wisdom is being wise in time.</i><br><i>– Theodore Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
