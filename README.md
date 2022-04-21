@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want your life to be more rewarding, you have to change the way you think.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Failure will never overtake me if my determination to succeed is strong enough.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
