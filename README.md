@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always be a first-rate version of yourself, instead of a second-rate version of somebody else.</i><br><i>– Judy Garland.</i><br></p>
+<p align="center"><br><i>If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
