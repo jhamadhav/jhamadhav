@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.</i><br><i>– Margaret Chase Smith.</i><br></p>
+<p align="center"><br><i>Quality is never an accident; it is always the result of intelligent effort.</i><br><i>– John Ruskin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
