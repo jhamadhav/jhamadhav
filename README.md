@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark.</i><br><i>– Michelangelo.</i><br></p>
+<p align="center"><br><i>The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.</i><br><i>– Margaret Chase Smith.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
