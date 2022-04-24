@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is through science that we prove, but through intuition that we discover.</i><br><i>– Henri Poincaré.</i><br></p>
+<p align="center"><br><i>What is necessary to change a person is to change his awareness of himself.</i><br><i>– Abraham Maslow.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
