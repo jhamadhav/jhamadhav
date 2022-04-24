@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible.</i><br><i>– Hannah Arendt.</i><br></p>
+<p align="center"><br><i>It is through science that we prove, but through intuition that we discover.</i><br><i>– Henri Poincaré.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
