@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Go to your bosom: Knock there and ask your heart what it doth know.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>It is in your moments of decision that your destiny is shaped.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
