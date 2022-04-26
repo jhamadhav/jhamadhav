@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Real magic in relationships means an absence of judgement of others.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>If you don't know where you are going, any road will get you there.</i><br><i>– Lewis Carroll.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
