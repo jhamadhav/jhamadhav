@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Setting goals is the first step in turning the invisible into the visible.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Our character is what we do when we think no one is looking.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
