@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is a wisdom of the head, and a wisdom of the heart.</i><br><i>– Charles Dickens.</i><br></p>
+<p align="center"><br><i>Setting goals is the first step in turning the invisible into the visible.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
