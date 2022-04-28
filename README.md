@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When deeds and words are in accord, the whole world is transformed.</i><br><i>– Zhuang Zhou.</i><br></p>
+<p align="center"><br><i>Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
