@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reality leaves a lot to the imagination.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
