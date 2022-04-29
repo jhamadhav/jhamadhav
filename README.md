@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend is a gift you give yourself.</i><br><i>– Robert Louis Stevenson.</i><br></p>
+<p align="center"><br><i>No matter how hard the past, you can always begin again.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
