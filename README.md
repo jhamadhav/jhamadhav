@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If your actions inspire others to dream more, learn more, do more and become more, you are a leader.</i><br><i>– John Quincy Adams.</i><br></p>
+<p align="center"><br><i>The less effort, the faster and more powerful you will be.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
