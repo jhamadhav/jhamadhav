@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An idea that is developed and put into action is more important than an idea that exists only as an idea.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Tragedy is a tool for the living to gain wisdom, not a guide by which to live.</i><br><i>– Robert F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
