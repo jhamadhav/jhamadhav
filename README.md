@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>Whenever something negative happens to you, there is a deep lesson concealed within it.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
