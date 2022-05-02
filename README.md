@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.</i><br><i>– Nathaniel Hawthorne.</i><br></p>
+<p align="center"><br><i>You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless.</i><br><i>– Caroline Myss.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
