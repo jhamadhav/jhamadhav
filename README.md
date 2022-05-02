@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whenever something negative happens to you, there is a deep lesson concealed within it.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>We love life, not because we are used to living but because we are used to loving.</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
