@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The future is completely open, and we are writing it moment to moment.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>It is with words as with sunbeams. The more they are condensed, the deeper they burn.</i><br><i>– Robert Southey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
