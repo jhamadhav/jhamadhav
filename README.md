@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Successful people ask better questions, and as a result, they get better answers.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>If we are not fully ourselves, truly in the present moment, we miss everything.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
