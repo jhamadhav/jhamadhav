@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If we are not fully ourselves, truly in the present moment, we miss everything.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>A ruffled mind makes a restless pillow.</i><br><i>– Charlotte Brontë.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
