@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>There is nothing in a caterpillar that tells you it's going to be a butterfly.</i><br><i>– Buckminster Fuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
