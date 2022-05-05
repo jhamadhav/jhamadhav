@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's important to know that words don't move mountains. Work, exacting work moves mountains.</i><br><i>– Danilo Dolci.</i><br></p>
+<p align="center"><br><i>We must not say every mistake is a foolish one.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
