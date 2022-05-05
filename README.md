@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A ruffled mind makes a restless pillow.</i><br><i>– Charlotte Brontë.</i><br></p>
+<p align="center"><br><i>We are what we think. All that we are arises with our thoughts. With our thoughts, we make the world.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
