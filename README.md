@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We can change our lives. We can do, have, and be exactly what we wish.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.</i><br><i>– John Keats.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
