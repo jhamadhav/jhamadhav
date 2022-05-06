@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.</i><br><i>– John Keats.</i><br></p>
+<p align="center"><br><i>Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.</i><br><i>– Edith Wharton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
