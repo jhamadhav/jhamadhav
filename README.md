@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If one way be better than another, that you may be sure is nature's way.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>We can change our lives. We can do, have, and be exactly what we wish.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
