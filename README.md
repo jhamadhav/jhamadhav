@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness does not come from having much, but from being attached to little.</i><br><i>– Cheng Yen.</i><br></p>
+<p align="center"><br><i>To be wrong is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
