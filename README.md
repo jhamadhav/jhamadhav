@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All that we see or seem is but a dream within a dream.</i><br><i>– Edgar Allan Poe.</i><br></p>
+<p align="center"><br><i>Remember always that you not only have the right to be an individual, you have an obligation to be one.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
