@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Setting an example is not the main means of influencing another, it is the only means.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>You cannot have what you do not want.</i><br><i>– John Acosta.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
