@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>While we stop to think, we often miss our opportunity.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>Setting an example is not the main means of influencing another, it is the only means.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
