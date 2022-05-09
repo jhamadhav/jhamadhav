@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do all things with love.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>When the world is so complicated, the simple gift of friendship is within all of our hands.</i><br><i>– Maria Shriver.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
