@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.</i><br><i>– Melody Beattie.</i><br></p>
+<p align="center"><br><i>Nothing happens unless first we dream.</i><br><i>– Carl Sandburg.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
