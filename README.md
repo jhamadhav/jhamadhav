@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't believe in failure. It's not failure if you enjoyed the process.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Memory is the mother of all wisdom.</i><br><i>– Samuel Johnson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
