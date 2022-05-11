@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'll prepare and someday my chance will come.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>We may encounter many defeats, but we must not be defeated.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
