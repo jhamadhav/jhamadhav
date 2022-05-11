@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We may encounter many defeats, but we must not be defeated.</i><br><i>– Maya Angelou.</i><br></p>
+<p align="center"><br><i>We lost because we told ourselves we lost.</i><br><i>– Leo Tolstoy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
