@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We lost because we told ourselves we lost.</i><br><i>– Leo Tolstoy.</i><br></p>
+<p align="center"><br><i>Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
