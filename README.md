@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>There is never enough time to do everything, but there is always enough time to do the most important thing.</i><br><i>– Brian Tracy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
