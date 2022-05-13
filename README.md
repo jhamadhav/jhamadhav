@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is never enough time to do everything, but there is always enough time to do the most important thing.</i><br><i>– Brian Tracy.</i><br></p>
+<p align="center"><br><i>When you judge another, you do not define them, you define yourself.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
