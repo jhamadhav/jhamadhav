@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fortune befriends the bold.</i><br><i>– John Dryden.</i><br></p>
+<p align="center"><br><i>Start with what is right rather than what is acceptable.</i><br><i>– Franz Kafka.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
