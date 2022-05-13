@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you judge another, you do not define them, you define yourself.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Fortune befriends the bold.</i><br><i>– John Dryden.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
