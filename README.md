@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When the world is so complicated, the simple gift of friendship is within all of our hands.</i><br><i>– Maria Shriver.</i><br></p>
+<p align="center"><br><i>The more light you allow within you, the brighter the world you live in will be.</i><br><i>– Shakti Gawain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
