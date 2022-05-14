@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.</i><br><i>– Nathaniel Hawthorne.</i><br></p>
+<p align="center"><br><i>The things that one most wants to do are the things that are probably most worth doing.</i><br><i>– Winifred Holtby.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
