@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Give whatever you are doing and whoever you are with the gift of your attention.</i><br><i>– Jim Rohn.</i><br></p>
+<p align="center"><br><i>Your body is precious. It is our vehicle for awakening. Treat it with care.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
