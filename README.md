@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your body is precious. It is our vehicle for awakening. Treat it with care.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Ignorant men raise questions that wise men answered a thousand years ago.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
