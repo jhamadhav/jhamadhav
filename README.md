@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing will work unless you do.</i><br><i>– Maya Angelou.</i><br></p>
+<p align="center"><br><i>Every friendship is different because everyone's personality is different.</i><br><i>– Nargis Fakhri.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
