@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The first step to getting the things you want out of life is this: decide what you want.</i><br><i>– Ben Stein.</i><br></p>
+<p align="center"><br><i>Love is a friendship set to music.</i><br><i>– Joseph Campbell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
