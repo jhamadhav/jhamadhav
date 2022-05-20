@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wherever you go, go with all your heart.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Action may not always bring happiness; but there is no happiness without action.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
