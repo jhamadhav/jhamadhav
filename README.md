@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.</i><br><i>– David Rockefeller.</i><br></p>
+<p align="center"><br><i>Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.</i><br><i>– Barack Obama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
