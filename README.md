@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When a thing is done, it's done. Don't look back. Look forward to your next objective.</i><br><i>– George Marshall.</i><br></p>
+<p align="center"><br><i>If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.</i><br><i>– Rollo May.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
