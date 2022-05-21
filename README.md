@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What we think, we become.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>When a thing is done, it's done. Don't look back. Look forward to your next objective.</i><br><i>– George Marshall.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
