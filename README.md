@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you realize how perfect everything is you will tilt your head back and laugh at the sky.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Let the future tell the truth and evaluate each one according to his work and accomplishments. The present is theirs; the future, for which I have really worked, is mine.</i><br><i>– Nikola Tesla.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
