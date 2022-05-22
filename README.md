@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.</i><br><i>– Rollo May.</i><br></p>
+<p align="center"><br><i>Whoso loves, believes the impossible.</i><br><i>– Elizabeth Browning.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
