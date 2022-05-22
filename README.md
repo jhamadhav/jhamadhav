@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>When you realize how perfect everything is you will tilt your head back and laugh at the sky.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
