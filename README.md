@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let the future tell the truth and evaluate each one according to his work and accomplishments. The present is theirs; the future, for which I have really worked, is mine.</i><br><i>– Nikola Tesla.</i><br></p>
+<p align="center"><br><i>All this modern technology just makes people try to do everything at once.</i><br><i>– Bill Watterson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
