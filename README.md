@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No valid plans for the future can be made by those who have no capacity for living now.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Marriage: A friendship recognized by the police.</i><br><i>– Robert Louis Stevenson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
