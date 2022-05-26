@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'd rather regret the things I've done than regret the things I haven't done.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>The truth is not for all men, but only for those who seek it.</i><br><i>– Ayn Rand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
