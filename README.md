@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truth is not for all men, but only for those who seek it.</i><br><i>– Ayn Rand.</i><br></p>
+<p align="center"><br><i>We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.</i><br><i>– Frank Abagnale.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
