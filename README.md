@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Walking with a friend in the dark is better than walking alone in the light.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>Quality means doing it right when no one is looking.</i><br><i>– Henry Ford.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
