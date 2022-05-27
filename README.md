@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Quality means doing it right when no one is looking.</i><br><i>– Henry Ford.</i><br></p>
+<p align="center"><br><i>Who looks outside, dreams, who looks inside, awakes.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
