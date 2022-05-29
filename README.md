@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You do not become good by trying to be good, but by finding the goodness that is already within you.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>I'd rather regret the things that I have done than the things that I have not done.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
