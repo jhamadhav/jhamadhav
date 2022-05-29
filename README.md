@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.</i><br><i>– Henry Wadsworth Longfellow.</i><br></p>
+<p align="center"><br><i>You do not become good by trying to be good, but by finding the goodness that is already within you.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
