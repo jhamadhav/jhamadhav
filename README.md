@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When we seek to discover the best in others, we somehow bring out the best in ourselves.</i><br><i>– William Arthur Ward.</i><br></p>
+<p align="center"><br><i>The fall of dropping water wears away the Stone.</i><br><i>– Lucretius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
