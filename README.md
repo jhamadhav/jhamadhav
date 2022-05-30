@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always do your best. What you plant now, you will harvest later.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>When we seek to discover the best in others, we somehow bring out the best in ourselves.</i><br><i>– William Arthur Ward.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
