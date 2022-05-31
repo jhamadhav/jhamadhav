@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ask yourself the secret of your success. Listen to your answer and practice it.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Love is blind; friendship closes its eyes.</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
