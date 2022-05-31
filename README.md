@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is blind; friendship closes its eyes.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>Happiness often sneaks in through a door you didn't know you left open.</i><br><i>– John Barrymore.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
