@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.</i><br><i>– Edith Wharton.</i><br></p>
+<p align="center"><br><i>The thing always happens that you really believe in; and the belief in a thing makes it happen.</i><br><i>– Frank Lloyd Wright.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
