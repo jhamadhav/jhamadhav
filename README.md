@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The thing always happens that you really believe in; and the belief in a thing makes it happen.</i><br><i>– Frank Lloyd Wright.</i><br></p>
+<p align="center"><br><i>Read as you taste fruit or savor wine, or enjoy friendship, love or life.</i><br><i>– George Herbert.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
