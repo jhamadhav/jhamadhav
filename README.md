@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success.</i><br><i>– John Locke.</i><br></p>
+<p align="center"><br><i>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
