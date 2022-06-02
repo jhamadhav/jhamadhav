@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Get busy living or get busy dying.</i><br><i>– Stephen King.</i><br></p>
+<p align="center"><br><i>Your work is to discover your work and then with all your heart to give yourself to it.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
