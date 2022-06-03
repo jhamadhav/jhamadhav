@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest part of our happiness depends on our dispositions, not our circumstances.</i><br><i>– Martha Washington.</i><br></p>
+<p align="center"><br><i>Intuition will tell the thinking mind where to look next.</i><br><i>– Jonas Salk.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
