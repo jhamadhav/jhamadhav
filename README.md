@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There's power in looking silly and not caring that you do.</i><br><i>– Amy Poehler.</i><br></p>
+<p align="center"><br><i>Opportunity is missed by most because it is dressed in overalls and looks like work.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
