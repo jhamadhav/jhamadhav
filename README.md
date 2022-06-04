@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One of the advantages of being disorderly is that one is constantly making exciting discoveries.</i><br><i>– A. A. Milne.</i><br></p>
+<p align="center"><br><i>Loss is nothing else but change, and change is Nature's delight.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
