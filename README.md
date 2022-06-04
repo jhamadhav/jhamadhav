@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>With the new day comes new strength and new thoughts.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Practice yourself, for heaven's sake in little things, and then proceed to greater.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
