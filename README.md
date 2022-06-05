@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If only wed stop trying to be happy wed have a pretty good time.</i><br><i>– Edith Wharton.</i><br></p>
+<p align="center"><br><i>To be wronged is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
