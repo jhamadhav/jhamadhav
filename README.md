@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be wronged is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The beginning of knowledge is the discovery of something we do not understand.</i><br><i>– Frank Herbert.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
