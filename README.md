@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>No person is your friend who demands your silence or denies your right to grow.</i><br><i>– Alice Walker.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
