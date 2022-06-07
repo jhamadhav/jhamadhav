@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In the middle of every difficulty lies opportunity.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Take no thought of who is right or wrong or who is better than. Be not for or against.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
