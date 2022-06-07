@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Take no thought of who is right or wrong or who is better than. Be not for or against.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>I'm not interested in age. People who tell me their age are silly. You're as old as you feel.</i><br><i>– Elizabeth Arden.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
