@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'm not interested in age. People who tell me their age are silly. You're as old as you feel.</i><br><i>– Elizabeth Arden.</i><br></p>
+<p align="center"><br><i>The more sand that has escaped from the hourglass of our life, the clearer we should see through it.</i><br><i>– Jean-Paul Sartre.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
