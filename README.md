@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>Music in the soul can be heard by the universe.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
