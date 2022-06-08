@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Music in the soul can be heard by the universe.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>A ruffled mind makes a restless pillow.</i><br><i>– Charlotte Brontë.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
