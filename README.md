@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never deny a diagnosis but do deny the negative verdict that may go with it.</i><br><i>– Norman Cousins.</i><br></p>
+<p align="center"><br><i>Wisdom has never made a bigot, but learning has.</i><br><i>– Josh Billings.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
