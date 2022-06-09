@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom has never made a bigot, but learning has.</i><br><i>– Josh Billings.</i><br></p>
+<p align="center"><br><i>To study and not think is a waste. To think and not study is dangerous.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
