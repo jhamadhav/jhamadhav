@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A ruffled mind makes a restless pillow.</i><br><i>– Charlotte Brontë.</i><br></p>
+<p align="center"><br><i>Never deny a diagnosis but do deny the negative verdict that may go with it.</i><br><i>– Norman Cousins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
