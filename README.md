@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun.</i><br><i>– Chuck Swindoll.</i><br></p>
+<p align="center"><br><i>If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.</i><br><i>– Nora Roberts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
