@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sustaining true friendship is a lot more challenging than we give it credit for.</i><br><i>– Mariella Frostrup.</i><br></p>
+<p align="center"><br><i>Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again.</i><br><i>– John McCain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
