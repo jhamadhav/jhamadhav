@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't cross the sea merely by standing and staring at the water.</i><br><i>– Rabindranath Tagore.</i><br></p>
+<p align="center"><br><i>Sustaining true friendship is a lot more challenging than we give it credit for.</i><br><i>– Mariella Frostrup.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
