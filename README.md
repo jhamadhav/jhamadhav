@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.</i><br><i>– Nora Roberts.</i><br></p>
+<p align="center"><br><i>You can't cross the sea merely by standing and staring at the water.</i><br><i>– Rabindranath Tagore.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
