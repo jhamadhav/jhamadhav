@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Life is 10% what happens to you and 90% how you react to it.</i><br><i>– Chuck Swindoll.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
