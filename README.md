@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No person is your friend who demands your silence or denies your right to grow.</i><br><i>– Alice Walker.</i><br></p>
+<p align="center"><br><i>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
