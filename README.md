@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gratitude is not only the greatest of virtues, but the parent of all the others.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>Knowledge is proud that it knows so much; wisdom is humble that it knows no more.</i><br><i>– William Cowper.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
