@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>His lack of education is more than compensated for by his keenly developed moral bankruptcy.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>There's power in looking silly and not caring that you do.</i><br><i>– Amy Poehler.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
