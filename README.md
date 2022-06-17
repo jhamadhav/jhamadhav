@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are shaped by our thoughts; we become what we think. When the mind is pure, joy follows like a shadow that never leaves.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Until you make peace with who you are, you'll never be content with what you have.</i><br><i>– Doris Mortman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
