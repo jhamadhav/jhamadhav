@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more light you allow within you, the brighter the world you live in will be.</i><br><i>– Shakti Gawain.</i><br></p>
+<p align="center"><br><i>With every experience, you alone are painting your own canvas, thought by thought, choice by choice.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
