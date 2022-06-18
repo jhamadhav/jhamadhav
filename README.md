@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Until you make peace with who you are, you'll never be content with what you have.</i><br><i>– Doris Mortman.</i><br></p>
+<p align="center"><br><i>The more light you allow within you, the brighter the world you live in will be.</i><br><i>– Shakti Gawain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
