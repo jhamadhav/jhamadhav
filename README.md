@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I allow my intuition to lead my path.</i><br><i>– Manuel Puig.</i><br></p>
+<p align="center"><br><i>Where there is charity and wisdom, there is neither fear nor ignorance.</i><br><i>– Francis of Assisi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
