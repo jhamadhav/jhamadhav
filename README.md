@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Great acts are made up of small deeds.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Intuition will tell the thinking mind where to look next.</i><br><i>– Jonas Salk.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
