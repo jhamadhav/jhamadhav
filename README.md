@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Intuition will tell the thinking mind where to look next.</i><br><i>– Jonas Salk.</i><br></p>
+<p align="center"><br><i>Friendship is an arrangement by which we undertake to exchange small favors for big ones.</i><br><i>– Montesquieu.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
