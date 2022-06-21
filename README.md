@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Once you choose hope, anything's possible.</i><br><i>– Christopher Reeve.</i><br></p>
+<p align="center"><br><i>True friendship is like sound health; the value of it is seldom known until it is lost.</i><br><i>– Charles Caleb Colton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
