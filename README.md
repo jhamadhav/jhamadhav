@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.</i><br><i>– Horace.</i><br></p>
+<p align="center"><br><i>An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.</i><br><i>– Thomas Fuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
