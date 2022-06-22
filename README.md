@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Better be ignorant of a matter than half know it.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.</i><br><i>– Horace.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
