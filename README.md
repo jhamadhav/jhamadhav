@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Small opportunities are often the beginning of great enterprises.</i><br><i>– Demosthenes.</i><br></p>
+<p align="center"><br><i>When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
