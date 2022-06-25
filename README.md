@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom.</i><br><i>– Charles Spurgeon.</i><br></p>
+<p align="center"><br><i>The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it.</i><br><i>– Michelangelo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
