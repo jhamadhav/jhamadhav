@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If there is no struggle, there is no progress.</i><br><i>– Frederick Douglass.</i><br></p>
+<p align="center"><br><i>I can, therefore I am.</i><br><i>– Simone Weil.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
