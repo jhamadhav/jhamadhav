@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I can, therefore I am.</i><br><i>– Simone Weil.</i><br></p>
+<p align="center"><br><i>Loss is nothing else but change, and change is Nature's delight.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
