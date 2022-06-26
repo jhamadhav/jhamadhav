@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it.</i><br><i>– Michelangelo.</i><br></p>
+<p align="center"><br><i>By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
