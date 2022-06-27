@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Listen to what you know instead of what you fear.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Those that know, do. Those that understand, teach.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
