@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You always succeed in producing a result.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Listen to what you know instead of what you fear.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
