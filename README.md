@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>You always succeed in producing a result.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
