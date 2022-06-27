@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those that know, do. Those that understand, teach.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Correction does much, but encouragement does more.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
