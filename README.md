@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who hath many friends hath none.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>From wonder into wonder existence opens.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
