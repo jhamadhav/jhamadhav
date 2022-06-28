@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Correction does much, but encouragement does more.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>To hell with circumstances, I create opportunities.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
