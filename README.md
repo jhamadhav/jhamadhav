@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To hell with circumstances, I create opportunities.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>He who hath many friends hath none.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
