@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>From wonder into wonder existence opens.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway.</i><br><i>– Mary Kay Ash.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
