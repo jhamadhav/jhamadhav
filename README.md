@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway.</i><br><i>– Mary Kay Ash.</i><br></p>
+<p align="center"><br><i>Better than a thousand hollow words, is one word that brings peace.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
