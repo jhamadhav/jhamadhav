@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Accept challenges, so that you may feel the exhilaration of victory.</i><br><i>– George S. Patton.</i><br></p>
+<p align="center"><br><i>I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
