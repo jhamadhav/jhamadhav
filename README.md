@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Logic is the beginning of wisdom, not the end.</i><br><i>– Leonard Nimoy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
