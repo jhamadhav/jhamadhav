@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Logic is the beginning of wisdom, not the end.</i><br><i>– Leonard Nimoy.</i><br></p>
+<p align="center"><br><i>On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.</i><br><i>– Edward Young.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
