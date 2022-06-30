@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you are content to be simply yourself and don't compare or compete, everybody will respect you.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>There surely is in human nature an inherent propensity to extract all the good out of all the evil.</i><br><i>– Benjamin Haydon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
