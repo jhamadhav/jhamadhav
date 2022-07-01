@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.</i><br><i>– Ralph Marston.</i><br></p>
+<p align="center"><br><i>Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.</i><br><i>– Marie Curie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
