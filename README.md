@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.</i><br><i>– Marie Curie.</i><br></p>
+<p align="center"><br><i>To be great is to be misunderstood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
