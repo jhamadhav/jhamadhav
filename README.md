@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have always thought the actions of men the best interpreters of their thoughts.</i><br><i>– John Locke.</i><br></p>
+<p align="center"><br><i>Wisdom alone is the science of other sciences.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
