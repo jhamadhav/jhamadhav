@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.</i><br><i>– W. Clement Stone.</i><br></p>
+<p align="center"><br><i>Before you put on a frown, make absolutely sure there are no smiles available.</i><br><i>– James M. Beggs.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
