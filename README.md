@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Before you put on a frown, make absolutely sure there are no smiles available.</i><br><i>– James M. Beggs.</i><br></p>
+<p align="center"><br><i>If you have knowledge, let others light their candles in it.</i><br><i>– Margaret Fuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
