@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The lure of the distant and the difficult is deceptive. The great opportunity is where you are.</i><br><i>– John Burroughs.</i><br></p>
+<p align="center"><br><i>The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
