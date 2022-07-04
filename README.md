@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>The lure of the distant and the difficult is deceptive. The great opportunity is where you are.</i><br><i>– John Burroughs.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
