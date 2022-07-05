@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing strengthens authority so much as silence.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.</i><br><i>– David Rockefeller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
