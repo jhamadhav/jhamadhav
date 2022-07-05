@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When deeds and words are in accord, the whole world is transformed.</i><br><i>– Zhuang Zhou.</i><br></p>
+<p align="center"><br><i>Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.</i><br><i>– Muhammad Ali.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
