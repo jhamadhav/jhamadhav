@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.</i><br><i>– Muhammad Ali.</i><br></p>
+<p align="center"><br><i>Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.</i><br><i>– Carrie Snow.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
