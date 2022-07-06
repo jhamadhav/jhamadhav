@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you do what you've always done, you'll get what you've always gotten.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>No man can succeed in a line of endeavor which he does not like.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
