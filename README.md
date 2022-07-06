@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man can succeed in a line of endeavor which he does not like.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>The heart has eyes which the brain knows nothing of.</i><br><i>– Charles Henry Parkhurst.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
