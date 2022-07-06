@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The heart has eyes which the brain knows nothing of.</i><br><i>– Charles Henry Parkhurst.</i><br></p>
+<p align="center"><br><i>To be wronged is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
