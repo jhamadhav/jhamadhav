@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.</i><br><i>– Carrie Snow.</i><br></p>
+<p align="center"><br><i>If you do what you've always done, you'll get what you've always gotten.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
