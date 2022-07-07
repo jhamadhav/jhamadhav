@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The self is not something ready-made, but something in continuous formation through choice of action.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>You cannot step twice into the same river, for other waters are continually flowing in.</i><br><i>– Heraclitus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
