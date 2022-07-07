@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You are that vast thing that you see far, far off with great telescopes.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
