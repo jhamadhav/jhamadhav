@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be wronged is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The self is not something ready-made, but something in continuous formation through choice of action.</i><br><i>– John Dewey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
