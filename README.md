@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A wise man will make more opportunities than he finds.</i><br><i>– Francis Bacon.</i><br></p>
+<p align="center"><br><i>The cautious seldom err.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
