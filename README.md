@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The cautious seldom err.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>All human wisdom is summed up in two words; wait and hope.</i><br><i>– Alexandre Dumas.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
