@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nature gave us one tongue and two ears so we could hear twice as much as we speak.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Age does not protect you from love. But love, to some extent, protects you from age.</i><br><i>– Anaïs Nin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
