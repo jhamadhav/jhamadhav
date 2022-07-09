@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Age does not protect you from love. But love, to some extent, protects you from age.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>You are important enough to ask and you are blessed enough to receive back.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
