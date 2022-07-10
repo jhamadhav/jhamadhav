@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You are important enough to ask and you are blessed enough to receive back.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
