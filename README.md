@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man was ever wise by chance.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.</i><br><i>– G. K. Chesterton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
