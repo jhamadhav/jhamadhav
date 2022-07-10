@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The person who lives life fully, glowing with life's energy, is the person who lives a successful life.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>No man was ever wise by chance.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
