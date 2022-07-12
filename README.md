@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.</i><br><i>– John Wooden.</i><br></p>
+<p align="center"><br><i>Autumn is a second spring when every leaf is a flower.</i><br><i>– Albert Camus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
