@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The man of knowledge must be able not only to love his enemies but also to hate his friends.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
