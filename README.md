@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.</i><br><i>– Arthur Ashe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
