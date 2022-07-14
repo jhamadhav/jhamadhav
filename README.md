@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never reach out your hand unless you're willing to extend an arm.</i><br><i>– Pope Paul VI.</i><br></p>
+<p align="center"><br><i>Maxim for life: You get treated in life the way you teach people to treat you.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
