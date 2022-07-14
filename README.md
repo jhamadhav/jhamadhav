@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I will prepare and some day my chance will come.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>The journey of a thousand miles begins with one step.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
