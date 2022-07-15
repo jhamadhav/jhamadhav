@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>Without courage, wisdom bears no fruit.</i><br><i>– Baltasar Gracián.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
