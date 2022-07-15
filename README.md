@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Maxim for life: You get treated in life the way you teach people to treat you.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others.</i><br><i>– Harriet Lerner.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
