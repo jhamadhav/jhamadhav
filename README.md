@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others.</i><br><i>– Harriet Lerner.</i><br></p>
+<p align="center"><br><i>Knowledge is going to make you stronger. Knowledge is going to let you control your life. Knowledge is going to give you the wisdom to teach their children. Knowledge is the thing that makes you smile in the face of disaster.</i><br><i>– Avery Brooks.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
