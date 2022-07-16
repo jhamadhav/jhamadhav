@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't turn away from possible futures before you're certain you don't have anything to learn from them.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>The Superior Man is aware of Righteousness, the inferior man is aware of advantage.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
