@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The Superior Man is aware of Righteousness, the inferior man is aware of advantage.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>He that respects himself is safe from others; he wears a coat of mail that none can pierce.</i><br><i>– Henry Wadsworth Longfellow.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
