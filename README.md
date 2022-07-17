@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All the world is a stage, And all the men and women merely players. They have their exits and entrances; Each man in his time plays many parts.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.</i><br><i>– Anatole France.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
