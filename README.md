@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Success is not final; failure is not fatal: it is the courage to continue that counts.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Technology is anything that wasn't around when you were born.</i><br><i>– Man Ray.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
