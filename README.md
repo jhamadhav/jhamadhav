@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He that respects himself is safe from others; he wears a coat of mail that none can pierce.</i><br><i>– Henry Wadsworth Longfellow.</i><br></p>
+<p align="center"><br><i>Success is not final; failure is not fatal: it is the courage to continue that counts.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
