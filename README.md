@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A leader is one who knows the way, goes the way, and shows the way.</i><br><i>– John C. Maxwell.</i><br></p>
+<p align="center"><br><i>But man is not made for defeat. A man can be destroyed but not defeated.</i><br><i>– Ernest Hemingway.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
