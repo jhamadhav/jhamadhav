@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love doesn't make the world go round; love is what makes the ride worthwhile.</i><br><i>– Elizabeth Browning.</i><br></p>
+<p align="center"><br><i>If you have one true friend, you have more than your share.</i><br><i>– Thomas Fuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
