@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is Love without his wings!</i><br><i>– Lord Byron.</i><br></p>
+<p align="center"><br><i>Those that know, do. Those that understand, teach.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
