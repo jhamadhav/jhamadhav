@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Study the past, if you would divine the future.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>It is the quality of our work which will please God, not the quantity.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
