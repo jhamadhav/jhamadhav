@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything has beauty, but not everyone sees it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Study the past, if you would divine the future.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
