@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.</i><br><i>– Salman Rushdie.</i><br></p>
+<p align="center"><br><i>Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.</i><br><i>– Chanakya.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
