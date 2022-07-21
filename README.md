@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>When in doubt, don't.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
