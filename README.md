@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A single rose can be my garden... a single friend, my world.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
