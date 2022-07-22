@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those who dream by day are cognizant of many things which escape those who dream only by night.</i><br><i>– Edgar Allan Poe.</i><br></p>
+<p align="center"><br><i>A single rose can be my garden... a single friend, my world.</i><br><i>– Leo Buscaglia.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
