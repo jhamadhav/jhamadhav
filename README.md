@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.</i><br><i>– Arthur Rubinstein.</i><br></p>
+<p align="center"><br><i>Those who dream by day are cognizant of many things which escape those who dream only by night.</i><br><i>– Edgar Allan Poe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
