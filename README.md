@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>We can only be said to be alive in those moments when our hearts are conscious of our treasures.</i><br><i>– Thornton Wilder.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
