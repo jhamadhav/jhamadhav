@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You cannot be lonely if you like the person you're alone with.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Those who are free of resentful thoughts surely find peace.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
