@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is found in doing, not merely possessing.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>One of the most beautiful qualities of true friendship is to understand and to be understood.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
