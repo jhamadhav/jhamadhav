@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Things turn out best for those who make the best of the way things turn out.</i><br><i>– Jack Buck.</i><br></p>
+<p align="center"><br><i>If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
