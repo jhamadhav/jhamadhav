@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.</i><br><i>– Eric Hoffer.</i><br></p>
+<p align="center"><br><i>The minute you settle for less than you deserve, you get even less than you settled for.</i><br><i>– Maureen Dowd.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
