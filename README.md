@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whatever happens, take responsibility.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.</i><br><i>– Eric Hoffer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
