@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We know what we are but know not what we may be.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
