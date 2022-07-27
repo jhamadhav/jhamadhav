@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Of all possessions a friend is the most precious.</i><br><i>– Herodotus.</i><br></p>
+<p align="center"><br><i>We know what we are but know not what we may be.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
