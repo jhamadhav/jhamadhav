@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The minute you settle for less than you deserve, you get even less than you settled for.</i><br><i>– Maureen Dowd.</i><br></p>
+<p align="center"><br><i>Those who dream by day are cognizant of many things which escape those who dream only by night.</i><br><i>– Edgar Allan Poe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
