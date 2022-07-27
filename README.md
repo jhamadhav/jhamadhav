@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those who dream by day are cognizant of many things which escape those who dream only by night.</i><br><i>– Edgar Allan Poe.</i><br></p>
+<p align="center"><br><i>Of all possessions a friend is the most precious.</i><br><i>– Herodotus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
