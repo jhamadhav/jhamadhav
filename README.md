@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>Thousands of candles can be lit from a single, and the life of the candle will not be shortened. Happiness never decreases by being shared.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
