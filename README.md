@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Thousands of candles can be lit from a single, and the life of the candle will not be shortened. Happiness never decreases by being shared.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>The beginning of knowledge is the discovery of something we do not understand.</i><br><i>– Frank Herbert.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
