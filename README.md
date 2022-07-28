@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To climb steep hills requires a slow pace at first.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
