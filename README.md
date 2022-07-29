@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To find a man's true character, play golf with him.</i><br><i>– P. G. Wodehouse.</i><br></p>
+<p align="center"><br><i>You cannot step twice into the same river, for other waters are continually flowing in.</i><br><i>– Heraclitus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
