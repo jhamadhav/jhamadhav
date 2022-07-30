@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Setting an example is not the main means of influencing another, it is the only means.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.</i><br><i>– Earl Monroe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
