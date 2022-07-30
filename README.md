@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A garden is always a series of losses set against a few triumphs, like life itself.</i><br><i>– May Sarton.</i><br></p>
+<p align="center"><br><i>Never complain and never explain.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
