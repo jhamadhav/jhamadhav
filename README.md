@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.</i><br><i>– Earl Monroe.</i><br></p>
+<p align="center"><br><i>A garden is always a series of losses set against a few triumphs, like life itself.</i><br><i>– May Sarton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
