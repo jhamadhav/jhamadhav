@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never complain and never explain.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>By accepting yourself and being fully what you are, your presence can make others happy.</i><br><i>– Jane Roberts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
