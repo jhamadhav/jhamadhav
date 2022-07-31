@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>By accepting yourself and being fully what you are, your presence can make others happy.</i><br><i>– Jane Roberts.</i><br></p>
+<p align="center"><br><i>Friendship at first sight, like love at first sight, is said to be the only truth.</i><br><i>– Herman Melville.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
