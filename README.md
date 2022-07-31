@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship at first sight, like love at first sight, is said to be the only truth.</i><br><i>– Herman Melville.</i><br></p>
+<p align="center"><br><i>Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people.</i><br><i>– Mary Kay Ash.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
