@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people.</i><br><i>– Mary Kay Ash.</i><br></p>
+<p align="center"><br><i>Happiness does not come from having much, but from being attached to little.</i><br><i>– Cheng Yen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
