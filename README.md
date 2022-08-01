@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when?</i><br><i>– Rabbi Hillel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
