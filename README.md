@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when?</i><br><i>– Rabbi Hillel.</i><br></p>
+<p align="center"><br><i>The greatest remedy for anger is delay.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
