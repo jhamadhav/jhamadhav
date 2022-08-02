@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest remedy for anger is delay.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Just because something doesn't do what you planned it to do doesn't mean it's useless.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
