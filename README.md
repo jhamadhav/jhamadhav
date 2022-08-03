@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer.</i><br><i>– Robert Graves.</i><br></p>
+<p align="center"><br><i>Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.</i><br><i>– Stewart Brand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
