@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Eighty percent of success is showing up.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>We know what we are but know not what we may be.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
