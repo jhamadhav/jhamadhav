@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.</i><br><i>– Stewart Brand.</i><br></p>
+<p align="center"><br><i>Eighty percent of success is showing up.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
