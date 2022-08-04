@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.</i><br><i>– Wayne Gretzky.</i><br></p>
+<p align="center"><br><i>I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
