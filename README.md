@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Learning without reflection is a waste, reflection without learning is dangerous.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.</i><br><i>– Wayne Gretzky.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
