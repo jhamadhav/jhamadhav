@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.</i><br><i>– Joseph Roux.</i><br></p>
+<p align="center"><br><i>No man has a good enough memory to be a successful liar.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
