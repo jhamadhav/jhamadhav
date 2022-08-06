@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who wishes to secure the good of others, has already secured his own.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>I'm a great believer in luck and I find the harder I work, the more I have of it.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
