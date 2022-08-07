@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best thing about the future is that it only comes one day at a time.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Many of life's failures are people who did not realize how close they were to success when they gave up.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
