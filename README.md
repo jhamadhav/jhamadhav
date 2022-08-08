@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Give whatever you are doing and whoever you are with the gift of your attention.</i><br><i>– Jim Rohn.</i><br></p>
+<p align="center"><br><i>You must welcome change as the rule but not as your ruler.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
