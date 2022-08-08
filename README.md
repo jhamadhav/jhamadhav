@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Many of life's failures are people who did not realize how close they were to success when they gave up.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Follow your instincts. That is where true wisdom manifests itself.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
