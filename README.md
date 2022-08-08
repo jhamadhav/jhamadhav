@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Follow your instincts. That is where true wisdom manifests itself.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>All things change; nothing perishes.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
