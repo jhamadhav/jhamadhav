@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You must welcome change as the rule but not as your ruler.</i><br><i>– Denis Waitley.</i><br></p>
+<p align="center"><br><i>The human spirit must prevail over technology.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
