@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The human spirit must prevail over technology.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Quality means doing it right when no one is looking.</i><br><i>– Henry Ford.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
