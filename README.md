@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good, better, best. Never let it rest. ‘Til your good is better and your better is best.</i><br><i>– Jerome.</i><br></p>
+<p align="center"><br><i>When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.</i><br><i>– A. Powell Davies.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
