@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The Superior Man is aware of Righteousness, the inferior man is aware of advantage.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Good, better, best. Never let it rest. ‘Til your good is better and your better is best.</i><br><i>– Jerome.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
