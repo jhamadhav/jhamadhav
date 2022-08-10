@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.</i><br><i>– A. Powell Davies.</i><br></p>
+<p align="center"><br><i>Remembering a wrong is like carrying a burden on the mind.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
