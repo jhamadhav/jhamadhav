@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There's power in looking silly and not caring that you do.</i><br><i>– Amy Poehler.</i><br></p>
+<p align="center"><br><i>Kind words can be short and easy to speak, but their echoes are truly endless.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
