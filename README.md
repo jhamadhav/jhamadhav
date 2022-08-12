@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If the stars should appear but one night every thousand years how man would marvel and adore.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>All children are artists. The problem is how to remain an artist once he grows up.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
