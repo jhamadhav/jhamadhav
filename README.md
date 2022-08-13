@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The least of things with a meaning is worth more in life than the greatest of things without it.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>The world is round and the place which may seem like the end may also be the beginning.</i><br><i>– Ivy Baker Priest.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
