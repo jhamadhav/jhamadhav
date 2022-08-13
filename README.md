@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The world is round and the place which may seem like the end may also be the beginning.</i><br><i>– Ivy Baker Priest.</i><br></p>
+<p align="center"><br><i>The day of fortune is like a harvest day, we must be busy when the corn is ripe.</i><br><i>– Torquato Tasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
