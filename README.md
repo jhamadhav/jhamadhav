@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The day of fortune is like a harvest day, we must be busy when the corn is ripe.</i><br><i>– Torquato Tasso.</i><br></p>
+<p align="center"><br><i>The language of friendship is not words but meanings.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
