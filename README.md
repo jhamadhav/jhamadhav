@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is essentially a partnership.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>A man's growth is seen in the successive choirs of his friends</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
