@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing strengthens authority so much as silence.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>Friendship is essentially a partnership.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
