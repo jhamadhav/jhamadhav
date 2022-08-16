@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>As a technology, the book is like a hammer. That is to say, it is perfect: a tool ideally suited to its task. Hammers can be tweaked and varied but will never go obsolete. Even when builders pound nails by the thousand with pneumatic nail guns, every household needs a hammer.</i><br><i>– James Gleick.</i><br></p>
+<p align="center"><br><i>A friend is a gift you give yourself.</i><br><i>– Robert Louis Stevenson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
