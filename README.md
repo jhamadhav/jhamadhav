@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You are always free to change your mind and choose a different future, or a different past.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Work for something because it is good, not just because it stands a chance to succeed.</i><br><i>– Václav Havel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
