@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Learn from yesterday, live for today, hope for tomorrow.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>You are always free to change your mind and choose a different future, or a different past.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
