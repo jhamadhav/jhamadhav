@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In seed time learn, in harvest teach, in winter enjoy.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.</i><br><i>– Naguib Mahfouz.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
