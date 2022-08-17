@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.</i><br><i>– Naguib Mahfouz.</i><br></p>
+<p align="center"><br><i>Beware of missing chances; otherwise it may be altogether too late someday.</i><br><i>– Franz Liszt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
