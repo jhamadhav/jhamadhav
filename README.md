@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend is a gift you give yourself.</i><br><i>– Robert Louis Stevenson.</i><br></p>
+<p align="center"><br><i>In seed time learn, in harvest teach, in winter enjoy.</i><br><i>– William Blake.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
