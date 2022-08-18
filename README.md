@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is blind; friendship closes its eyes.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>Bad times have a scientific value. These are occasions a good learner would not miss.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
