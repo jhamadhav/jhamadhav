@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Bad times have a scientific value. These are occasions a good learner would not miss.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>We must embrace pain and burn it as fuel for our journey.</i><br><i>– Kenji Miyazawa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
