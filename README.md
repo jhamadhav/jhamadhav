@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must embrace pain and burn it as fuel for our journey.</i><br><i>– Kenji Miyazawa.</i><br></p>
+<p align="center"><br><i>TV and the Internet are good because they keep stupid people from spending too much time out in public.</i><br><i>– Douglas Coupland.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
