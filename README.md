@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.</i><br><i>– Babatunde Olatunji.</i><br></p>
+<p align="center"><br><i>You're not obligated to win. You're obligated to keep trying to do the best you can every day.</i><br><i>– Marian Wright Edelman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
