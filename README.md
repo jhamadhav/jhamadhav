@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.</i><br><i>– Babatunde Olatunji.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
