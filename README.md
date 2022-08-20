@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love and friendship exclude each other.</i><br><i>– Jean de La Bruyère.</i><br></p>
+<p align="center"><br><i>The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.</i><br><i>– Charles Lamb.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
