@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Step with care and great tact and remember that Life's a Great Balancing Act.</i><br><i>– Dr. Seuss.</i><br></p>
+<p align="center"><br><i>Love and friendship exclude each other.</i><br><i>– Jean de La Bruyère.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
