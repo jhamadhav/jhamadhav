@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You're not obligated to win. You're obligated to keep trying to do the best you can every day.</i><br><i>– Marian Wright Edelman.</i><br></p>
+<p align="center"><br><i>Friendship is like money, easier made than kept.</i><br><i>– Samuel Butler.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
