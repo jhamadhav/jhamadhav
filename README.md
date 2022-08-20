@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is like money, easier made than kept.</i><br><i>– Samuel Butler.</i><br></p>
+<p align="center"><br><i>Step with care and great tact and remember that Life's a Great Balancing Act.</i><br><i>– Dr. Seuss.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
