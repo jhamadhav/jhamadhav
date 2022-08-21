@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts.</i><br><i>– Dan Gable.</i><br></p>
+<p align="center"><br><i>Mountains cannot be surmounted except by winding paths.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
