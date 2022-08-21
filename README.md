@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is Love without his wings!</i><br><i>– Lord Byron.</i><br></p>
+<p align="center"><br><i>Never find fault with the absent.</i><br><i>– Alexander Pope.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
