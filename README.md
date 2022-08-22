@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never find fault with the absent.</i><br><i>– Alexander Pope.</i><br></p>
+<p align="center"><br><i>I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.</i><br><i>– Susan Orlean.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
