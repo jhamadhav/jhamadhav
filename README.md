@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.</i><br><i>– Susan Orlean.</i><br></p>
+<p align="center"><br><i>Eighty percent of success is showing up.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
