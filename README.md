@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What the caterpillar calls the end of the world, the master calls a butterfly.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>The cause is hidden. The effect is visible to all.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
