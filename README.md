@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The cause is hidden. The effect is visible to all.</i><br><i>– Ovid.</i><br></p>
+<p align="center"><br><i>Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
