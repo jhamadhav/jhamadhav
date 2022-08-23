@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our character is what we do when we think no one is looking.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
+<p align="center"><br><i>Go to your bosom: Knock there and ask your heart what it doth know.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
