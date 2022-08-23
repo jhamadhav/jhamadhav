@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Our character is what we do when we think no one is looking.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
