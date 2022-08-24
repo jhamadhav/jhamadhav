@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every great advance in science has issued from a new audacity of the imagination.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>Friendship is Love without his wings!</i><br><i>– Lord Byron.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
