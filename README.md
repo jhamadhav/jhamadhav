@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is Love without his wings!</i><br><i>– Lord Byron.</i><br></p>
+<p align="center"><br><i>Never pretend to a love which you do not actually feel, for love is not ours to command.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
