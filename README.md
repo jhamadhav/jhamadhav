@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We cannot be more sensitive to pleasure without being more sensitive to pain.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
