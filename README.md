@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>The world is a book, and those who do not travel read only a page.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
