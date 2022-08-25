@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never pretend to a love which you do not actually feel, for love is not ours to command.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>We cannot be more sensitive to pleasure without being more sensitive to pain.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
