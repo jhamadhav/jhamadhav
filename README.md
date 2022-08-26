@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.</i><br><i>– Laurence J. Peter.</i><br></p>
+<p align="center"><br><i>People are not lazy. They simply have impotent goals - that is, goals that do not inspire them.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
