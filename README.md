@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An organization, no matter how well designed, is only as good as the people who live and work in it.</i><br><i>– Dee Hock.</i><br></p>
+<p align="center"><br><i>So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
