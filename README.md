@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People are not lazy. They simply have impotent goals - that is, goals that do not inspire them.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>An organization, no matter how well designed, is only as good as the people who live and work in it.</i><br><i>– Dee Hock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
