@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>I have no special talent. I am only passionately curious.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
