@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have no special talent. I am only passionately curious.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>What we see depends mainly on what we look for.</i><br><i>– John Lubbock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
