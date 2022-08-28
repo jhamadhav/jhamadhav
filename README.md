@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>A single rose can be my garden... a single friend, my world.</i><br><i>– Leo Buscaglia.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
