@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A single rose can be my garden... a single friend, my world.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>Freedom is the right to live as we wish.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
