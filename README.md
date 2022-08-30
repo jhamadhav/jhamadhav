@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I want you to be everything that's you, deep at the center of your being.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Freedom is what you do with what's been done to you.</i><br><i>– Jean-Paul Sartre.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
