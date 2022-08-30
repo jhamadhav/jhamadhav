@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>No man can succeed in a line of endeavor which he does not like.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
