@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't watch the clock; do what it does. Keep going.</i><br><i>– Sam Levenson.</i><br></p>
+<p align="center"><br><i>Love does not consist of gazing at each other, but in looking together in the same direction.</i><br><i>– Antoine de Saint-Exupéry.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
