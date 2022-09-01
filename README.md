@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence is deep as Eternity; Speech is shallow as Time.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>It's supposed to be automatic, but actually you have to push this button.</i><br><i>– John Brunner.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
