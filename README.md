@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life's most persistent and urgent question is, 'What are you doing for others?'</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
