@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.</i><br><i>– Brian O'Driscoll.</i><br></p>
+<p align="center"><br><i>Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.</i><br><i>– Elie Wiesel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
