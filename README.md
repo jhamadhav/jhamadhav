@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.</i><br><i>– Elie Wiesel.</i><br></p>
+<p align="center"><br><i>We cannot do everything at once, but we can do something at once.</i><br><i>– Calvin Coolidge.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
