@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's supposed to be automatic, but actually you have to push this button.</i><br><i>– John Brunner.</i><br></p>
+<p align="center"><br><i>Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.</i><br><i>– Brian O'Driscoll.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
