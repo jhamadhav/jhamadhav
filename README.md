@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is what happens while you are making other plans.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>Pick battles big enough to matter, small enough to win.</i><br><i>– Jonathan Kozol.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
