@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Friendship is one mind in two bodies.</i><br><i>– Mencius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
