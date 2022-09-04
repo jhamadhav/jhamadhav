@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Imagination is not a talent of some men but is the health of every man.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>The only person who never makes mistakes is the person who never does anything.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
