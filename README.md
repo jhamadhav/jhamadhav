@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is one mind in two bodies.</i><br><i>– Mencius.</i><br></p>
+<p align="center"><br><i>People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
