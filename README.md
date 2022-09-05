@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No alibi will save you from accepting the responsibility.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>You can't let praise or criticism get to you. It's a weakness to get caught up in either one.</i><br><i>– John Wooden.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
