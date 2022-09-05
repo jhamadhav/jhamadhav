@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>No alibi will save you from accepting the responsibility.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
