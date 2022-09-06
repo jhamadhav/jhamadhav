@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All know the way; few actually walk it.</i><br><i>– Bodhidharma.</i><br></p>
+<p align="center"><br><i>If you light a lamp for somebody, it will also brighten your path.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
