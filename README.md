@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you light a lamp for somebody, it will also brighten your path.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Things do not change; we change.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
