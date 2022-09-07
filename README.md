@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The path to success is to take massive, determined action.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Sincerity is the way of Heaven. The attainment of sincerity is the way of men.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
