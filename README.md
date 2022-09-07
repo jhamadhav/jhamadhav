@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sincerity is the way of Heaven. The attainment of sincerity is the way of men.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The longer we dwell on our misfortunes, the greater is their power to harm us.</i><br><i>– Voltaire.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
