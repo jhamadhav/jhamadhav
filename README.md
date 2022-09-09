@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want things to be different, perhaps the answer is to become different yourself.</i><br><i>– Norman Vincent Peale.</i><br></p>
+<p align="center"><br><i>We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.</i><br><i>– Uta Hagen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
