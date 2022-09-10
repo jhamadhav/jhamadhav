@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have never been hurt by anything I didn't say.</i><br><i>– Calvin Coolidge.</i><br></p>
+<p align="center"><br><i>The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.</i><br><i>– Carlos Castaneda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
