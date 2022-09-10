@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you change the way you look at things, the things you look at change.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>I have never been hurt by anything I didn't say.</i><br><i>– Calvin Coolidge.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
