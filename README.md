@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I love you the more in that I believe you had liked me for my own sake and for nothing else.</i><br><i>– John Keats.</i><br></p>
+<p align="center"><br><i>The real danger is not that computers will begin to think like men, but that men will begin to think like computers.</i><br><i>– Sydney J. Harris.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
