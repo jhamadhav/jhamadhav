@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A jug fills drop by drop.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Nothing great was ever achieved without enthusiasm.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
