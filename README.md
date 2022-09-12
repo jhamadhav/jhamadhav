@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be the change that you want to see in the world.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>There's power in looking silly and not caring that you do.</i><br><i>– Amy Poehler.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
