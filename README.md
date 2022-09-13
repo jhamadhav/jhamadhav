@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is the marriage of the soul, and this marriage is liable to divorce.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>The truth is not for all men, but only for those who seek it.</i><br><i>– Ayn Rand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
