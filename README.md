@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truth is not for all men, but only for those who seek it.</i><br><i>– Ayn Rand.</i><br></p>
+<p align="center"><br><i>Two persons cannot long be friends if they cannot forgive each other's little failings.</i><br><i>– Jean de La Bruyère.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
