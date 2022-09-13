@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am not the first Buddha who came upon Earth, nor shall I be the last. In due time, another Buddha will arise in the world - a Holy One, a supremely enlightened One, endowed with wisdom in conduct, auspicious, knowing the universe, an incomparable leader of men, a master of angels and mortals.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Quality means doing it right when no one is looking.</i><br><i>– Henry Ford.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
