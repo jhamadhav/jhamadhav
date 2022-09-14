@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every man is a volume if you know how to read him.</i><br><i>– William Ellery Channing.</i><br></p>
+<p align="center"><br><i>Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.</i><br><i>– Peter Drucker.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
