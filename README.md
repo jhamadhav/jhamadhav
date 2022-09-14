@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.</i><br><i>– Peter Drucker.</i><br></p>
+<p align="center"><br><i>The greater our knowledge increases the more our ignorance unfolds.</i><br><i>– John F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
