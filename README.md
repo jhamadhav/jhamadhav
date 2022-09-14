@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greater our knowledge increases the more our ignorance unfolds.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Technology presumes there's just one right way to do things and there never is.</i><br><i>– Robert M. Pirsig.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
