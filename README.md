@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Two persons cannot long be friends if they cannot forgive each other's little failings.</i><br><i>– Jean de La Bruyère.</i><br></p>
+<p align="center"><br><i>Every man is a volume if you know how to read him.</i><br><i>– William Ellery Channing.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
