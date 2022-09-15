@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.</i><br><i>– Chanakya.</i><br></p>
+<p align="center"><br><i>Be your own hero, it's cheaper than a movie ticket.</i><br><i>– Doug Horton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
