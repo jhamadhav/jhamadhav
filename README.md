@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be your own hero, it's cheaper than a movie ticket.</i><br><i>– Doug Horton.</i><br></p>
+<p align="center"><br><i>Aim for the moon. If you miss, you may hit a star.</i><br><i>– W. Clement Stone.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
