@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In skating over thin ice our safety is in our speed.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>We cannot be more sensitive to pleasure without being more sensitive to pain.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
