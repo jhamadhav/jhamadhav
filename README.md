@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We cannot be more sensitive to pleasure without being more sensitive to pain.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Our work is the presentation of our capabilities.</i><br><i>– Edward Gibbon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
