@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You cannot escape the responsibility of tomorrow by evading it today.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>To fly as fast as thought, you must begin by knowing that you have already arrived.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
