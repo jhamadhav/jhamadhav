@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>Always tell the truth. That way, you don't have to remember what you said.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
