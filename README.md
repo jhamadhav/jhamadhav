@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always tell the truth. That way, you don't have to remember what you said.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>Work while you have the light. You are responsible for the talent that has been entrusted to you.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
