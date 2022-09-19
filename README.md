@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trying to sneak a fastball past Hank Aaron is like trying to sneak the sunrise past a rooster.</i><br><i>– Joe Adcock.</i><br></p>
+<p align="center"><br><i>The two most powerful warriors are patience and time.</i><br><i>– Leo Tolstoy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
