@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Trying to sneak a fastball past Hank Aaron is like trying to sneak the sunrise past a rooster.</i><br><i>– Joe Adcock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
