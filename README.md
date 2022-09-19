@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The two most powerful warriors are patience and time.</i><br><i>– Leo Tolstoy.</i><br></p>
+<p align="center"><br><i>The only real valuable thing is intuition.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
