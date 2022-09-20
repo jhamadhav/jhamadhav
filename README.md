@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only real valuable thing is intuition.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Trust yourself. You know more than you think you do.</i><br><i>– Benjamin Spock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
