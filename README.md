@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't be dismayed by good-byes. A farewell is necessary before you can meet again. And meeting again, after moments or lifetimes, is certain for those who are friends.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Failure will never overtake me if my determination to succeed is strong enough.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
