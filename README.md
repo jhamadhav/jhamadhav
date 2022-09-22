@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In order to succeed, we must first believe that we can.</i><br><i>– Nikos Kazantzakis.</i><br></p>
+<p align="center"><br><i>One loyal friend is worth ten thousand relatives.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
