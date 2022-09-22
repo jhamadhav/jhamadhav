@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One loyal friend is worth ten thousand relatives.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>Once we accept our limits, we go beyond them.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
