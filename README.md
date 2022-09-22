@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>In order to succeed, we must first believe that we can.</i><br><i>– Nikos Kazantzakis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
