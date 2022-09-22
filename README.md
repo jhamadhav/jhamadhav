@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Once we accept our limits, we go beyond them.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Do you want to know who you are? Don't ask. Act! Action will delineate and define you.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
