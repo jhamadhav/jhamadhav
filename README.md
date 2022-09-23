@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just because something doesn't do what you planned it to do doesn't mean it's useless.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Education is the most powerful weapon which you can use to change the world.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
