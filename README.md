@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do you want to know who you are? Don't ask. Act! Action will delineate and define you.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>People usually compare the computer to the head of the human being. I would say that hardware is the bone of the head, the skull. The semiconductor is the brain within the head. The software is the wisdom. And data is the knowledge.</i><br><i>– Masayoshi Son.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
