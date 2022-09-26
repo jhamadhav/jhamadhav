@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not go where the path may lead, go instead where there is no path and leave a trail.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer.</i><br><i>– Robert Graves.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
