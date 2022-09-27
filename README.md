@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer.</i><br><i>– Robert Graves.</i><br></p>
+<p align="center"><br><i>The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
