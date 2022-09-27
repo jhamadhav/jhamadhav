@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>People may doubt what you say, but they will believe what you do.</i><br><i>– Lewis Cass.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
