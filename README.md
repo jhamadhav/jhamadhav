@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People may doubt what you say, but they will believe what you do.</i><br><i>– Lewis Cass.</i><br></p>
+<p align="center"><br><i>Knowledge rests not upon truth alone, but upon error also.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
