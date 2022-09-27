@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge rests not upon truth alone, but upon error also.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>Work while you have the light. You are responsible for the talent that has been entrusted to you.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
