@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When in doubt, tell the truth.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>So much technology, so little talent.</i><br><i>– Vernor Vinge.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
