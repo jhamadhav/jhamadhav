@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do what you can. Want what you have. Be who you are.</i><br><i>– Forrest Church.</i><br></p>
+<p align="center"><br><i>Ability will never catch up with the demand for it.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
