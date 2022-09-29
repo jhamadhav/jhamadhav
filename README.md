@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ability will never catch up with the demand for it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>All that I am, or hope to be, I owe to my angel mother.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
