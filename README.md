@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>Nothing strengthens authority so much as silence.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
