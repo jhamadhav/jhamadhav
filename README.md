@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing strengthens authority so much as silence.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>The world is round so that friendship may encircle it.</i><br><i>– Pierre Teilhard de Chardin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
