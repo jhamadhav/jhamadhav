@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you do not change direction, you may end up where you are heading.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>I can't change the direction of the wind, but I can adjust my sails to always reach my destination.</i><br><i>– Jimmy Dean.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
