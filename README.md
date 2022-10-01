@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love, friendship and respect do not unite people as much as a common hatred for something.</i><br><i>– Anton Chekhov.</i><br></p>
+<p align="center"><br><i>You don't look out there for God, something in the sky, you look in you.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
