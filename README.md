@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Well begun is half done.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Always keep an open mind and a compassionate heart.</i><br><i>– Phil Jackson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
