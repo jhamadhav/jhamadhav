@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let yourself be silently drawn by the stronger pull of what you really love.</i><br><i>– Rumi.</i><br></p>
+<p align="center"><br><i>What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.</i><br><i>– Sai Baba.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
