@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Let yourself be silently drawn by the stronger pull of what you really love.</i><br><i>– Rumi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
