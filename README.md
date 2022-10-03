@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always keep an open mind and a compassionate heart.</i><br><i>– Phil Jackson.</i><br></p>
+<p align="center"><br><i>He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
