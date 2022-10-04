@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An invasion of armies can be resisted, but not an idea whose time has come.</i><br><i>– Victor Hugo.</i><br></p>
+<p align="center"><br><i>The man of knowledge must be able not only to love his enemies but also to hate his friends.</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
