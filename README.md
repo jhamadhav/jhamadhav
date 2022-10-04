@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.</i><br><i>– Arthur Conan Doyle.</i><br></p>
+<p align="center"><br><i>An invasion of armies can be resisted, but not an idea whose time has come.</i><br><i>– Victor Hugo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
