@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Respect should be earned by actions, and not acquired by years.</i><br><i>– Frank Lloyd Wright.</i><br></p>
+<p align="center"><br><i>Be your own hero, it's cheaper than a movie ticket.</i><br><i>– Doug Horton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
