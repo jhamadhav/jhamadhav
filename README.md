@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>How wonderful it is that nobody need wait a single moment before starting to improve the world.</i><br><i>– Anne Frank.</i><br></p>
+<p align="center"><br><i>Minds are like parachutes. They only function when open.</i><br><i>– Thomas Dewar.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
