@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Minds are like parachutes. They only function when open.</i><br><i>– Thomas Dewar.</i><br></p>
+<p align="center"><br><i>Music is a higher revelation than all wisdom and philosophy.</i><br><i>– Ludwig van Beethoven.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
