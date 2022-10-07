@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Genius is one percent inspiration and ninety-nine percent perspiration.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Those who dream by day are cognizant of many things which escape those who dream only by night.</i><br><i>– Edgar Allan Poe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
