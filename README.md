@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.</i><br><i>– Eustace Budgell.</i><br></p>
+<p align="center"><br><i>However many holy words you read, however many you speak, what good will they do you if you do not act on upon them?</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
