@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>However many holy words you read, however many you speak, what good will they do you if you do not act on upon them?</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
