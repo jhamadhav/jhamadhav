@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To fly as fast as thought, you must begin by knowing that you have already arrived.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.</i><br><i>– Eustace Budgell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
