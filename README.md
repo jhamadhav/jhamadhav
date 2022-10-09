@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The happiness of a man in this life does not consist in the absence but in the mastery of his passions.</i><br><i>– Alfred Tennyson.</i><br></p>
+<p align="center"><br><i>Vanity can easily overtake wisdom. It usually overtakes common sense.</i><br><i>– Julian Casablancas.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
