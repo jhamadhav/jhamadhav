@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truth of the matter is that you always know the right thing to do. The hard part is doing it.</i><br><i>– Norman Schwarzkopf.</i><br></p>
+<p align="center"><br><i>Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.</i><br><i>– Eustace Budgell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
