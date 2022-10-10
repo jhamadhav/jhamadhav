@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.</i><br><i>– Eustace Budgell.</i><br></p>
+<p align="center"><br><i>The most effective way to do it, is to do it.</i><br><i>– Amelia Earhart.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
