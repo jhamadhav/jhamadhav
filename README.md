@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Vanity can easily overtake wisdom. It usually overtakes common sense.</i><br><i>– Julian Casablancas.</i><br></p>
+<p align="center"><br><i>The most formidable weapon against errors of every kind is reason.</i><br><i>– Thomas Paine.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
