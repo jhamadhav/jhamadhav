@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not so important to know everything as to appreciate what we learn.</i><br><i>– Hannah More.</i><br></p>
+<p align="center"><br><i>I have always thought the actions of men the best interpreters of their thoughts.</i><br><i>– John Locke.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
