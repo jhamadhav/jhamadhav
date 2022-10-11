@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not uncommon for people to spend their whole life waiting to start living.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>It is not so important to know everything as to appreciate what we learn.</i><br><i>– Hannah More.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
