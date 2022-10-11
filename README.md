@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most effective way to do it, is to do it.</i><br><i>– Amelia Earhart.</i><br></p>
+<p align="center"><br><i>It is not uncommon for people to spend their whole life waiting to start living.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
