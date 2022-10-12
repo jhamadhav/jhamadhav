@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.</i><br><i>– Sophocles.</i><br></p>
+<p align="center"><br><i>It is not in the stars to hold our destiny but in ourselves.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
