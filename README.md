@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People may doubt what you say, but they will believe what you do.</i><br><i>– Lewis Cass.</i><br></p>
+<p align="center"><br><i>Love isn't something you find. Love is something that finds you.</i><br><i>– Loretta Young.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
