@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not in the stars to hold our destiny but in ourselves.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>People may doubt what you say, but they will believe what you do.</i><br><i>– Lewis Cass.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
