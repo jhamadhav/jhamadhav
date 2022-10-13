@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>No garden is without its weeds.</i><br><i>– Thomas Fuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
