@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In seed time learn, in harvest teach, in winter enjoy.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.</i><br><i>– William Hurt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
