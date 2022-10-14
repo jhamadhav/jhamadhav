@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>The more man meditates upon good thoughts, the better will be his world and the world at large.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
