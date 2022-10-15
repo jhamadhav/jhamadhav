@@ -31,7 +31,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.</i><br><i>– William Hurt.</i><br></p>
+<p align="center"><br><i>Only I can change my life. No one can do it for me.</i><br><i>– Carol Burnett.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
