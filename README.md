@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The ego is nothing other than the focus of conscious attention.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Knowledge is of no value unless you put it into practice.</i><br><i>– Anton Chekhov.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
