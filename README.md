@@ -17,6 +17,7 @@
 ## 📚 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Firebase Bootcamp: Hex-Clicker](https://dev.to/jhamadhav/firebase-bootcamp-hex-clicker-1nk3)
 - [Syncing tabs via service worker](https://dev.to/jhamadhav/syncing-tabs-via-service-worker-ep7)
 <!-- BLOG-POST-LIST:END -->
 
