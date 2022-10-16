@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.</i><br><i>– Daniel J. Boorstin.</i><br></p>
+<p align="center"><br><i>Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.</i><br><i>– Gordon Hinckley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
