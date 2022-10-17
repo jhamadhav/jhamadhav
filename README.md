@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man is modest in his speech but exceeds in his actions.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Time is the most valuable thing a man can spend.</i><br><i>– Theophrastus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
