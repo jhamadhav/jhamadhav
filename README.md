@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time is the most valuable thing a man can spend.</i><br><i>– Theophrastus.</i><br></p>
+<p align="center"><br><i>Every great advance in science has issued from a new audacity of the imagination.</i><br><i>– John Dewey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
