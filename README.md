@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>A rolling stone gathers no moss.</i><br><i>– Publilius Syrus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
