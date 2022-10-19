@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A rolling stone gathers no moss.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
