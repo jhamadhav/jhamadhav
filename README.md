@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is the mark of an educated mind to be able to entertain a thought without accepting it.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.</i><br><i>– Daniel J. Boorstin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
