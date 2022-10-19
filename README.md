@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.</i><br><i>– Daniel J. Boorstin.</i><br></p>
+<p align="center"><br><i>Every human being is the author of his own health or disease.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
