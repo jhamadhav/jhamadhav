@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every human being is the author of his own health or disease.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Success is getting what you want. Happiness is wanting what you get.</i><br><i>– Dale Carnegie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
