@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always bear in mind that your own resolution to succeed is more important than any one thing.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>To avoid criticism, do nothing, say nothing, be nothing.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
