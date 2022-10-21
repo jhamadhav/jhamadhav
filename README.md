@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No snowflake in an avalanche ever feels responsible.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>He who lives in harmony with himself lives in harmony with the world.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
