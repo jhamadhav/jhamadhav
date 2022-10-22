@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who lives in harmony with himself lives in harmony with the world.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>A man who doesn't trust himself can never really trust anyone else.</i><br><i>– Jean François Paul de Gondi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
