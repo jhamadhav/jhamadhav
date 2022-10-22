@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man who doesn't trust himself can never really trust anyone else.</i><br><i>– Jean François Paul de Gondi.</i><br></p>
+<p align="center"><br><i>Irony is the gaiety of reflection and the joy of wisdom.</i><br><i>– Anatole France.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
