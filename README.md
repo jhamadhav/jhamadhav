@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</i><br><i>– Michael Jordan.</i><br></p>
+<p align="center"><br><i>He is able who thinks he is able.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
