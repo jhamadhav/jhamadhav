@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An appeaser is one who feeds a crocodile, hoping it will eat him last.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</i><br><i>– Michael Jordan.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
