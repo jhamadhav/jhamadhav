@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He is able who thinks he is able.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>The road of excess leads to the palace of wisdom.</i><br><i>– William Blake.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
