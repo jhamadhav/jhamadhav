@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A hero is no braver than an ordinary man, but he is braver five minutes longer.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
