@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>We read the world wrong and say that it deceives us.</i><br><i>– Rabindranath Tagore.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
