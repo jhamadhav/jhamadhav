@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>A day of worry is more exhausting than a day of work.</i><br><i>– John Lubbock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
