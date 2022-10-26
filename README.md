@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Through perseverance many people win success out of what seemed destined to be certain failure.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>The essence of true friendship is to make allowance for another's little lapses.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
