@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Logic is the beginning of wisdom, not the end.</i><br><i>– Leonard Nimoy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
