@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
