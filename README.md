@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A creative man is motivated by the desire to achieve, not by the desire to beat others.</i><br><i>– Ayn Rand.</i><br></p>
+<p align="center"><br><i>Every human being is the author of his own health or disease.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
