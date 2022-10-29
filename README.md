@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man cannot be said to succeed in this life who does not satisfy one friend.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>It is the mark of an educated mind to be able to entertain a thought without accepting it.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
