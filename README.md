@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is the mark of an educated mind to be able to entertain a thought without accepting it.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>A creative man is motivated by the desire to achieve, not by the desire to beat others.</i><br><i>– Ayn Rand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
