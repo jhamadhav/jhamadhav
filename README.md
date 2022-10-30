@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am not bothered by the fact that I am unknown. I am bothered when I do not know others.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Our passion is our strength.</i><br><i>– Billie Armstrong.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
