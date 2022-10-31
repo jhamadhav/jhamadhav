@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowing is not enough; we must apply. Willing is not enough; we must do.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>A creative man is motivated by the desire to achieve, not by the desire to beat others.</i><br><i>– Ayn Rand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
