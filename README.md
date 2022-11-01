@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowing is not enough; we must apply!</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>The only journey is the one within.</i><br><i>– Rainer Maria Rilke.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
