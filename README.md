@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There never was a good knife made of bad steel.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>Fear not for the future, weep not for the past.</i><br><i>– Percy Bysshe Shelley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
