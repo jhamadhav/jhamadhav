@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fear not for the future, weep not for the past.</i><br><i>– Percy Bysshe Shelley.</i><br></p>
+<p align="center"><br><i>Luck is what happens when preparation meets opportunity.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
