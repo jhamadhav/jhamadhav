@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust is the lubrication that makes it possible for organizations to work.</i><br><i>– Warren Bennis.</i><br></p>
+<p align="center"><br><i>Freedom is not worth having if it does not connote freedom to err.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
