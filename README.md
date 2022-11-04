@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Trust is the lubrication that makes it possible for organizations to work.</i><br><i>– Warren Bennis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
