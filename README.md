@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't stop the waves, but you can learn to surf.</i><br><i>– Jon Kabat-Zinn.</i><br></p>
+<p align="center"><br><i>Computers are useless. They can only give you answers.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
