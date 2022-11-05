@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Freedom is not worth having if it does not connote freedom to err.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later.</i><br><i>– Harold Geneen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
