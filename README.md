@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Joy is the best makeup.</i><br><i>– Anne Lamott.</i><br></p>
+<p align="center"><br><i>We should not give up and we should not allow the problem to defeat us.</i><br><i>– A. P. J. Abdul Kalam.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
