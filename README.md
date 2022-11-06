@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Study the past, if you would divine the future.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.</i><br><i>– Ted Williams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
