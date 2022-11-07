@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time is the wisest counsellor of all.</i><br><i>– Pericles.</i><br></p>
+<p align="center"><br><i>Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
