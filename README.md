@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Time is the wisest counsellor of all.</i><br><i>– Pericles.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
