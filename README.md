@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whatever we expect with confidence becomes our own self-fulfilling prophecy.</i><br><i>– Brian Tracy.</i><br></p>
+<p align="center"><br><i>I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.</i><br><i>– G. K. Chesterton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
