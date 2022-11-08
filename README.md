@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Vanity can easily overtake wisdom. It usually overtakes common sense.</i><br><i>– Julian Casablancas.</i><br></p>
+<p align="center"><br><i>Whatever we expect with confidence becomes our own self-fulfilling prophecy.</i><br><i>– Brian Tracy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
