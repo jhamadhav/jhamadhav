@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.</i><br><i>– G. K. Chesterton.</i><br></p>
+<p align="center"><br><i>The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur.</i><br><i>– Vince Lombardi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
