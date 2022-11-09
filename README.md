@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness mainly comes from our own attitude, rather than from external factors.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>We gain the strength of the temptation we resist.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
