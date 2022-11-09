@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I believe that we are fundamentally the same and have the same basic potential.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Happiness mainly comes from our own attitude, rather than from external factors.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
