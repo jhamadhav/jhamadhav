@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ideas are the beginning points of all fortunes.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Only those who dare to fail greatly can ever achieve greatly.</i><br><i>– Robert F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
