@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Only those who dare to fail greatly can ever achieve greatly.</i><br><i>– Robert F. Kennedy.</i><br></p>
+<p align="center"><br><i>Opportunity is missed by most because it is dressed in overalls and looks like work.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
