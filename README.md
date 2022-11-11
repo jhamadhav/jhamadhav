@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's just a job. Grass grows, birds fly, waves pound the sand. I beat people up.</i><br><i>– Muhammad Ali.</i><br></p>
+<p align="center"><br><i>The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.</i><br><i>– Will Durant.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
