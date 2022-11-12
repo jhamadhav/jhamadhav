@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both.</i><br><i>– Fawn M. Brodie.</i><br></p>
+<p align="center"><br><i>It is easier to live through someone else than to become complete yourself.</i><br><i>– Betty Friedan.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
