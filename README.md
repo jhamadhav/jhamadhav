@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No person is your friend who demands your silence or denies your right to grow.</i><br><i>– Alice Walker.</i><br></p>
+<p align="center"><br><i>Watch the little things; a small leak will sink a great ship.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
