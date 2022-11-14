@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you're changing the world, you're working on important things. You're excited to get up in the morning.</i><br><i>– Larry Page.</i><br></p>
+<p align="center"><br><i>The final proof of greatness lies in being able to endure criticism without resentment.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
