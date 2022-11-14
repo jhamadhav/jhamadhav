@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>This is the final test of a gentleman: his respect for those who can be of no possible value to him.</i><br><i>– William Lyon Phelps.</i><br></p>
+<p align="center"><br><i>The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion.</i><br><i>– Dwight D. Eisenhower.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
