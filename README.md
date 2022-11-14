@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must embrace pain and burn it as fuel for our journey.</i><br><i>– Kenji Miyazawa.</i><br></p>
+<p align="center"><br><i>If you're changing the world, you're working on important things. You're excited to get up in the morning.</i><br><i>– Larry Page.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
