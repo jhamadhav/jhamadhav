@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you do not change direction, you may end up where you are heading.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>To hell with circumstances, I create opportunities.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
