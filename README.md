@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.</i><br><i>– Earl Monroe.</i><br></p>
+<p align="center"><br><i>Never accept ultimatums, conventional wisdom, or absolutes.</i><br><i>– Christopher Reeve.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
