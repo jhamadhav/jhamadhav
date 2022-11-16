@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The price of greatness is responsibility.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.</i><br><i>– Earl Monroe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
