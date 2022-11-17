@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no retirement for an artist, it's your way of living so there is no end to it.</i><br><i>– Henry Moore.</i><br></p>
+<p align="center"><br><i>What we think, we become.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
