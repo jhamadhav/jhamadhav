@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You are that vast thing that you see far, far off with great telescopes.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
