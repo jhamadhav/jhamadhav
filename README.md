@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When I was 40, my doctor advised me that a man in his 40s shouldn't play tennis. I heeded his advice carefully and could hardly wait until I reached 50 to start again.</i><br><i>– Hugo Black.</i><br></p>
+<p align="center"><br><i>There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
