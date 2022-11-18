@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
