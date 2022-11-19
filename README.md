@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be wrong is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Every human being is the author of his own health or disease.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
