@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Along with success comes a reputation for wisdom.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>To be wrong is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
