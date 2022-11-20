@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man is modest in his speech but exceeds in his actions.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>I will prepare and some day my chance will come.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
