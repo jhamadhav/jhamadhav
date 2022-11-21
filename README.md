@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more you know yourself, the more you forgive yourself.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>We are made wise not by the recollection of our past, but by the responsibility for our future.</i><br><i>– Bernard Shaw.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
