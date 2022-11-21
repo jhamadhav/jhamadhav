@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Divide each difficulty into as many parts as is feasible and necessary to resolve it.</i><br><i>– René Descartes.</i><br></p>
+<p align="center"><br><i>The more you know yourself, the more you forgive yourself.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
