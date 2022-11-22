@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whoso loves, believes the impossible.</i><br><i>– Elizabeth Browning.</i><br></p>
+<p align="center"><br><i>Error is discipline through which we advance.</i><br><i>– William Ellery Channing.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
