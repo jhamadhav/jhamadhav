@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You don't look out there for God, something in the sky, you look in you.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>To command is to serve, nothing more and nothing less.</i><br><i>– André Malraux.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
