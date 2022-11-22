@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let yourself be silently drawn by the stronger pull of what you really love.</i><br><i>– Rumi.</i><br></p>
+<p align="center"><br><i>You don't look out there for God, something in the sky, you look in you.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
