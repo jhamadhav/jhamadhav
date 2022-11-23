@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To profit from good advice requires more wisdom than to give it.</i><br><i>– Wilson Mizner.</i><br></p>
+<p align="center"><br><i>The eye sees only what the mind is prepared to comprehend.</i><br><i>– Henri Bergson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
