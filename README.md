@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every friendship is different because everyone's personality is different.</i><br><i>– Nargis Fakhri.</i><br></p>
+<p align="center"><br><i>It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
