@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Experience is not what happens to a man. It is what a man does with what happens to him.</i><br><i>– Aldous Huxley.</i><br></p>
+<p align="center"><br><i>As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.</i><br><i>– Joseph Prince.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
