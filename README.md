@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.</i><br><i>– Joseph Prince.</i><br></p>
+<p align="center"><br><i>Every friendship is different because everyone's personality is different.</i><br><i>– Nargis Fakhri.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
