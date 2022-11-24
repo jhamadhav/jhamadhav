@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can observe a lot just by watching.</i><br><i>– Yogi Berra.</i><br></p>
+<p align="center"><br><i>Experience is not what happens to a man. It is what a man does with what happens to him.</i><br><i>– Aldous Huxley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
