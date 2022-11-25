@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>No one has a finer command of language than the person who keeps his mouth shut.</i><br><i>– Sam Rayburn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
