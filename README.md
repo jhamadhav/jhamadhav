@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An ounce of emotion is equal to a ton of facts.</i><br><i>– John Junor.</i><br></p>
+<p align="center"><br><i>Nothing in life is so exhilarating as to be shot at without result.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
