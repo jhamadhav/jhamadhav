@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change is the law of life. And those who look only to the past or present are certain to miss the future.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>An ounce of emotion is equal to a ton of facts.</i><br><i>– John Junor.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
