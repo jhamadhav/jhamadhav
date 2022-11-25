@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No one has a finer command of language than the person who keeps his mouth shut.</i><br><i>– Sam Rayburn.</i><br></p>
+<p align="center"><br><i>Change is the law of life. And those who look only to the past or present are certain to miss the future.</i><br><i>– John F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
