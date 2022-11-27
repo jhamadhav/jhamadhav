@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently.</i><br><i>– William Arthur Ward.</i><br></p>
+<p align="center"><br><i>Life is a progress, and not a station.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
