@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only real failure in life is not to be true to the best one knows.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
