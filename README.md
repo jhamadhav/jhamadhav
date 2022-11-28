@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A ruffled mind makes a restless pillow.</i><br><i>– Charlotte Brontë.</i><br></p>
+<p align="center"><br><i>The only real failure in life is not to be true to the best one knows.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
