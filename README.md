@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>God gave us the gift of life; it is up to us to give ourselves the gift of living well.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.</i><br><i>– George Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
