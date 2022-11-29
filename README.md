@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's easier to resist at the beginning than at the end.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>Remembering a wrong is like carrying a burden on the mind.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
