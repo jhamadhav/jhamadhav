@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.</i><br><i>– George Washington.</i><br></p>
+<p align="center"><br><i>Communications tools don't get socially interesting until they get technologically boring.</i><br><i>– Clay Shirky.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
