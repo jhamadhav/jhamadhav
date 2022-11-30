@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.</i><br><i>– Washington Irving.</i><br></p>
+<p align="center"><br><i>You're never a loser until you quit trying.</i><br><i>– Mike Ditka.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
