@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In separateness lies the world's great misery, in compassion lies the world's true strength.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Decision is a risk rooted in the courage of being free.</i><br><i>– Paul Tillich.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
