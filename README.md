@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If there is no struggle, there is no progress.</i><br><i>– Frederick Douglass.</i><br></p>
+<p align="center"><br><i>In separateness lies the world's great misery, in compassion lies the world's true strength.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
