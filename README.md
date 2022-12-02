@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing is softer or more flexible than water, yet nothing can resist it.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Most of the shadows of life are caused by standing in our own sunshine.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
