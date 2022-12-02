@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you do not change direction, you may end up where you are heading.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Nothing is softer or more flexible than water, yet nothing can resist it.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
