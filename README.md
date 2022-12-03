@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What lies behind us and what lies before us are small matters compared to what lies within us.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
+<p align="center"><br><i>To fly, we have to have resistance.</i><br><i>– Maya Lin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
