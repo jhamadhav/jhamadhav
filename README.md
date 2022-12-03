@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whether you think you can or you think you can't, you are right.</i><br><i>– Henry Ford.</i><br></p>
+<p align="center"><br><i>However many holy words you read, however many you speak, what good will they do you if you do not act on upon them?</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
