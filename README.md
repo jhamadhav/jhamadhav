@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your body is precious. It is our vehicle for awakening. Treat it with care.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.</i><br><i>– Washington Irving.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
