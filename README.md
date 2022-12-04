@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.</i><br><i>– Washington Irving.</i><br></p>
+<p align="center"><br><i>Work for something because it is good, not just because it stands a chance to succeed.</i><br><i>– Václav Havel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
