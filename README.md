@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time you enjoy wasting, was not wasted.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>Never do things others can do and will do, if there are things others cannot do or will not do.</i><br><i>– Amelia Earhart.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
