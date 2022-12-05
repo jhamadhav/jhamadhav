@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always seek out the seed of triumph in every adversity.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>Where there is charity and wisdom, there is neither fear nor ignorance.</i><br><i>– Francis of Assisi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
