@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Where there is charity and wisdom, there is neither fear nor ignorance.</i><br><i>– Francis of Assisi.</i><br></p>
+<p align="center"><br><i>He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today.</i><br><i>– Tryon Edwards.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
