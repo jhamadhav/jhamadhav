@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>At the center of your being, you have the answer; you know who you are, and you know what you want.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>What we think, we become.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
