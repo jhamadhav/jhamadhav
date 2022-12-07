@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>Those who cannot learn from history are doomed to repeat it.</i><br><i>– George Santayana.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
