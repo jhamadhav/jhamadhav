@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is a progress, and not a station.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>I'd rather regret the things that I have done than the things that I have not done.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
