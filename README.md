@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'd rather regret the things that I have done than the things that I have not done.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>The greatest way to live with honor in this world is to be what we pretend to be.</i><br><i>– Socrates.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
