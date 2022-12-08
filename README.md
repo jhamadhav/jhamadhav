@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest way to live with honor in this world is to be what we pretend to be.</i><br><i>– Socrates.</i><br></p>
+<p align="center"><br><i>It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.</i><br><i>– Charles Kingsley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
