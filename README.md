@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success.</i><br><i>– John Locke.</i><br></p>
+<p align="center"><br><i>Nature is a mutable cloud which is always and never the same.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
