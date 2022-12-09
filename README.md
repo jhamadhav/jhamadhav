@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nature is a mutable cloud which is always and never the same.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.</i><br><i>– Holly Near.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
