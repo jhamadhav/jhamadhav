@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No person is your friend who demands your silence or denies your right to grow.</i><br><i>– Alice Walker.</i><br></p>
+<p align="center"><br><i>I am a man of fixed and unbending principles, the first of which is to be flexible at all times.</i><br><i>– Everett Dirksen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
