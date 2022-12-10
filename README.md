@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The way is not in the sky. The way is in the heart.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>No person is your friend who demands your silence or denies your right to grow.</i><br><i>– Alice Walker.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
