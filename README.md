@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is the reward we get for living to the highest right we know.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Be as you wish to seem.</i><br><i>– Socrates.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
