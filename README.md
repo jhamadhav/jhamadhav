@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be as you wish to seem.</i><br><i>– Socrates.</i><br></p>
+<p align="center"><br><i>My best friend is the one who brings out the best in me.</i><br><i>– Henry Ford.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
