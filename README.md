@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>My best friend is the one who brings out the best in me.</i><br><i>– Henry Ford.</i><br></p>
+<p align="center"><br><i>Silence is the true friend that never betrays.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
