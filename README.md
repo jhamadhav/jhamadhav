@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Mistakes are the usual bridge between inexperience and wisdom.</i><br><i>– Phyllis Grissim-Theroux.</i><br></p>
+<p align="center"><br><i>Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.</i><br><i>– Arthur Conan Doyle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
