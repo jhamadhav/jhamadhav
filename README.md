@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence is the true friend that never betrays.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Happiness comes when your work and words are of benefit to yourself and others.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
