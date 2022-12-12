@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness comes when your work and words are of benefit to yourself and others.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Mistakes are the usual bridge between inexperience and wisdom.</i><br><i>– Phyllis Grissim-Theroux.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
