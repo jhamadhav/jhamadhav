@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The universe is transformation; our life is what our thoughts make it.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>I cannot always control what goes on outside. But I can always control what goes on inside.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
