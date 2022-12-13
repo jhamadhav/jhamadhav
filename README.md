@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I cannot always control what goes on outside. But I can always control what goes on inside.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>A creative man is motivated by the desire to achieve, not by the desire to beat others.</i><br><i>– Ayn Rand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
