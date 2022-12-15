@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trouble is only opportunity in work clothes.</i><br><i>– Henry J. Kaiser.</i><br></p>
+<p align="center"><br><i>Don't talk about what you have done or what you are going to do.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
