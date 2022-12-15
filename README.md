@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Think for yourselves and let others enjoy the privilege to do so too.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>Trouble is only opportunity in work clothes.</i><br><i>– Henry J. Kaiser.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
