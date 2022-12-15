@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your talent is God's gift to you. What you do with it is your gift back to God.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>Think for yourselves and let others enjoy the privilege to do so too.</i><br><i>– Voltaire.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
