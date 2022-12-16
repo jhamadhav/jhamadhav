@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world.</i><br><i>– Harriet Tubman.</i><br></p>
+<p align="center"><br><i>On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.</i><br><i>– Edward Young.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
