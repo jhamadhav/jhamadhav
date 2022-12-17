@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A wise man will make more opportunities than he finds.</i><br><i>– Francis Bacon.</i><br></p>
+<p align="center"><br><i>Make it your habit not to be critical about small things.</i><br><i>– Edward Everett Hale.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
