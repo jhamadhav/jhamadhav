@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.</i><br><i>– Carrie Snow.</i><br></p>
+<p align="center"><br><i>The winds and waves are always on the side of the ablest navigators.</i><br><i>– Edward Gibbon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
