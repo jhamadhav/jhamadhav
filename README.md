@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing.</i><br><i>– George Bernard Shaw.</i><br></p>
+<p align="center"><br><i>Genius unrefined resembles a flash of lightning, but wisdom is like the sun.</i><br><i>– Franz Grillparzer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
