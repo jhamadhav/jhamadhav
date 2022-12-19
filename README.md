@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The winds and waves are always on the side of the ablest navigators.</i><br><i>– Edward Gibbon.</i><br></p>
+<p align="center"><br><i>A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing.</i><br><i>– George Bernard Shaw.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
