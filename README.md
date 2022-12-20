@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Opportunity is missed by most because it is dressed in overalls and looks like work.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>It is not in the stars to hold our destiny but in ourselves.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
