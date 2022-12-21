@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary.</i><br><i>– Margaret Cousins.</i><br></p>
+<p align="center"><br><i>Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
