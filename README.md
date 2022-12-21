@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Thousands of candles can be lit from a single, and the life of the candle will not be shortened. Happiness never decreases by being shared.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary.</i><br><i>– Margaret Cousins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
