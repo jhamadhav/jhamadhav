@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.</i><br><i>– Sai Baba.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
