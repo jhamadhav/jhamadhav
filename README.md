@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.</i><br><i>– Sai Baba.</i><br></p>
+<p align="center"><br><i>I walk slowly, but I never walk backward.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
