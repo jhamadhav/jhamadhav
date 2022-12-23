@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All this modern technology just makes people try to do everything at once.</i><br><i>– Bill Watterson.</i><br></p>
+<p align="center"><br><i>The language of friendship is not words but meanings.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
