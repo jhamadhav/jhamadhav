@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.</i><br><i>– Robert Louis Stevenson.</i><br></p>
+<p align="center"><br><i>You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.</i><br><i>– Jim Bouton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
