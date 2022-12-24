@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It all depends on how we look at things, and not how they are in themselves.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>All serious daring starts from within.</i><br><i>– Harriet Beecher Stowe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
