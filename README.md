@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All serious daring starts from within.</i><br><i>– Harriet Beecher Stowe.</i><br></p>
+<p align="center"><br><i>Knowledge is going to make you stronger. Knowledge is going to let you control your life. Knowledge is going to give you the wisdom to teach their children. Knowledge is the thing that makes you smile in the face of disaster.</i><br><i>– Avery Brooks.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
