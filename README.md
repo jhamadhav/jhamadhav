@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Minds are like parachutes. They only function when open.</i><br><i>– Thomas Dewar.</i><br></p>
+<p align="center"><br><i>No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.</i><br><i>– Niccolò Machiavelli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
