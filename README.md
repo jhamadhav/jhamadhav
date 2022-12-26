@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To enjoy good health, to bring true happiness to one's family, to bring peace to all, one must first discipline and control one's own mind. If a man can control his mind, he can find the way to Enlightenment, and all wisdom and virtue will naturally come to him.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>You don't choose your family. They are God's gift to you, as you are to them.</i><br><i>– Desmond Tutu.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
