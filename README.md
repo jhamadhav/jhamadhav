@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you learn, teach. When you get, give.</i><br><i>– Maya Angelou.</i><br></p>
+<p align="center"><br><i>Technology is teaching us to be human again.</i><br><i>– Simon Mainwaring.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
