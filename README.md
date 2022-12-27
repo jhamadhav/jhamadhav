@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best thing in every noble dream is the dreamer...</i><br><i>– Moncure D. Conway.</i><br></p>
+<p align="center"><br><i>Those who are free of resentful thoughts surely find peace.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
