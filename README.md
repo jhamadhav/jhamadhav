@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I want you to be everything that's you, deep at the center of your being.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The best thing in every noble dream is the dreamer...</i><br><i>– Moncure D. Conway.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
