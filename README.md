@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I prefer the folly of enthusiasm to the indifference of wisdom.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.</i><br><i>– Blaise Pascal.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
