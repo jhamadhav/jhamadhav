@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>The more sand that has escaped from the hourglass of our life, the clearer we should see through it.</i><br><i>– Jean-Paul Sartre.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
