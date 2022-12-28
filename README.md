@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.</i><br><i>– Mother Angelica.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
