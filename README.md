@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time changes everything except something within us which is always surprised by change.</i><br><i>– Thomas Hardy.</i><br></p>
+<p align="center"><br><i>If there is no struggle, there is no progress.</i><br><i>– Frederick Douglass.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
