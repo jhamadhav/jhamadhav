@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.</i><br><i>– Mother Angelica.</i><br></p>
+<p align="center"><br><i>Love doesn't make the world go round; love is what makes the ride worthwhile.</i><br><i>– Elizabeth Browning.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
