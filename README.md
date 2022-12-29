@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love doesn't make the world go round; love is what makes the ride worthwhile.</i><br><i>– Elizabeth Browning.</i><br></p>
+<p align="center"><br><i>Time changes everything except something within us which is always surprised by change.</i><br><i>– Thomas Hardy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
