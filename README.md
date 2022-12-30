@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life shrinks or expands in proportion to one's courage.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>Most people are about as happy as they make up their minds to be</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
