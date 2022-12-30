@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You give before you get.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
