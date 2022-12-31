@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is the flower you've got to let grow.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>The superior man is satisfied and composed; the mean man is always full of distress.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
