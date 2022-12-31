@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No matter how carefully you plan your goals they will never be more that pipe dreams unless you pursue them with gusto.</i><br><i>– W. Clement Stone.</i><br></p>
+<p align="center"><br><i>Begin, be bold, and venture to be wise.</i><br><i>– Horace.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
