@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can always count on Americans to do the right thing - after they've tried everything else.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Love is the flower you've got to let grow.</i><br><i>– John Lennon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
