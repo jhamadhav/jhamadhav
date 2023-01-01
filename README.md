@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Begin, be bold, and venture to be wise.</i><br><i>– Horace.</i><br></p>
+<p align="center"><br><i>He who is contented is rich.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
