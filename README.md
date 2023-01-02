@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Set your goals high, and don't stop till you get there.</i><br><i>– Bo Jackson.</i><br></p>
+<p align="center"><br><i>Commitment is an act, not a word.</i><br><i>– Jean-Paul Sartre.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
