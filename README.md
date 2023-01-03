@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You won't skid if you stay in a rut.</i><br><i>– Kin Hubbard.</i><br></p>
+<p align="center"><br><i>If you cannot do great things, do small things in a great way.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
