@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All I required to be happy was friendship and people I could admire.</i><br><i>– Christian Dior.</i><br></p>
+<p align="center"><br><i>The biggest adventure you can ever take is to live the life of your dreams.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
