@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't want to achieve immortality through my work... I want to achieve it through not dying.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>All I required to be happy was friendship and people I could admire.</i><br><i>– Christian Dior.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
