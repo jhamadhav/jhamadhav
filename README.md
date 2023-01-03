@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you cannot do great things, do small things in a great way.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>I don't want to achieve immortality through my work... I want to achieve it through not dying.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
