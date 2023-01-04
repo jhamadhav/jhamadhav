@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The biggest adventure you can ever take is to live the life of your dreams.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>The greatest gift of life is friendship, and I have received it.</i><br><i>– Hubert Humphrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
