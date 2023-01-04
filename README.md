@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Without hard work, nothing grows but weeds.</i><br><i>– Gordon Hinckley.</i><br></p>
+<p align="center"><br><i>There is no retirement for an artist, it's your way of living so there is no end to it.</i><br><i>– Henry Moore.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
