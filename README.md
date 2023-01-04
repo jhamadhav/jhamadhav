@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no retirement for an artist, it's your way of living so there is no end to it.</i><br><i>– Henry Moore.</i><br></p>
+<p align="center"><br><i>A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.</i><br><i>– Joseph Roux.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
