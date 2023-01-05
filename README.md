@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.</i><br><i>– Joseph Roux.</i><br></p>
+<p align="center"><br><i>We are what we repeatedly do. Excellence, then, is not an act, but a habit.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
