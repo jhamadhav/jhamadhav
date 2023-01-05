@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend is, as it were, a second self.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
