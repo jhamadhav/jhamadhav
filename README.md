@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.</i><br><i>– Carlos Castaneda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
