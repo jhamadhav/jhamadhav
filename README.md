@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.</i><br><i>– Carlos Castaneda.</i><br></p>
+<p align="center"><br><i>I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match.</i><br><i>– Mia Hamm.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
