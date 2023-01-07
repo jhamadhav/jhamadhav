@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You cannot travel the path until you have become the path itself.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.</i><br><i>– Peter Drucker.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
