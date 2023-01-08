@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The man of knowledge must be able not only to love his enemies but also to hate his friends.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence.</i><br><i>– Frederick Douglass.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
