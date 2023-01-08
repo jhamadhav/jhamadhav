@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Pitching is the art of instilling fear.</i><br><i>– Sandy Koufax.</i><br></p>
+<p align="center"><br><i>There is only one happiness in life, to love and be loved.</i><br><i>– George Sand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
