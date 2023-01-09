@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Give me six hours to chop down a tree and I will spend the first four sharpening the axe.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
