@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Opportunity often comes disguised in the form of misfortune, or temporary defeat.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so.</i><br><i>– Douglas Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
