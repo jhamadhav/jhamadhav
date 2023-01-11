@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.</i><br><i>– Joseph Roux.</i><br></p>
+<p align="center"><br><i>The best argument against democracy is a five-minute conversation with the average voter.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
