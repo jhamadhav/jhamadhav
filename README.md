@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best argument against democracy is a five-minute conversation with the average voter.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
