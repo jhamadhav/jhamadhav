@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.</i><br><i>– Theodore H. White.</i><br></p>
+<p align="center"><br><i>What worries you masters you.</i><br><i>– Haddon Robinson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
