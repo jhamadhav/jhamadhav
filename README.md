@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our dreams can come true, if we have the courage to pursue them.</i><br><i>– Walt Disney.</i><br></p>
+<p align="center"><br><i>Whoso loves, believes the impossible.</i><br><i>– Elizabeth Browning.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
