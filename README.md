@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology has to be invented or adopted.</i><br><i>– Jared Diamond.</i><br></p>
+<p align="center"><br><i>If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.</i><br><i>– Elon Musk.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
