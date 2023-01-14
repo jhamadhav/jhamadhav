@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A thing well said will be wit in all languages.</i><br><i>– John Dryden.</i><br></p>
+<p align="center"><br><i>Technology has to be invented or adopted.</i><br><i>– Jared Diamond.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
