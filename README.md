@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whoso loves, believes the impossible.</i><br><i>– Elizabeth Browning.</i><br></p>
+<p align="center"><br><i>A thing well said will be wit in all languages.</i><br><i>– John Dryden.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
