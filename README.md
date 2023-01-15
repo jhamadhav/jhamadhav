@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest obstacle to connecting with our joy is resentment.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>The more sand that has escaped from the hourglass of our life, the clearer we should see through it.</i><br><i>– Jean-Paul Sartre.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
