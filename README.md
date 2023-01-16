@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Eighty percent of success is showing up.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
