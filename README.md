@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>The greatest remedy for anger is delay.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
