@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Mistakes are the usual bridge between inexperience and wisdom.</i><br><i>– Phyllis Grissim-Theroux.</i><br></p>
+<p align="center"><br><i>To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect.</i><br><i>– Joan Didion.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
