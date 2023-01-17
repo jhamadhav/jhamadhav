@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.</i><br><i>– Thomas Carlyle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
