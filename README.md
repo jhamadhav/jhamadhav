@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect.</i><br><i>– Joan Didion.</i><br></p>
+<p align="center"><br><i>May our hearts garden of awakening bloom with hundreds of flowers.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
