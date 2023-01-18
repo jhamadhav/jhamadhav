@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.</i><br><i>– Immanuel Kant.</i><br></p>
+<p align="center"><br><i>Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.</i><br><i>– Marcel Proust.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
