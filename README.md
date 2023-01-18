@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>May our hearts garden of awakening bloom with hundreds of flowers.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>A goal is a dream with a deadline.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
