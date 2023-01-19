@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.</i><br><i>– Marcel Proust.</i><br></p>
+<p align="center"><br><i>Silence is the true friend that never betrays.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
