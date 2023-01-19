@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence is the true friend that never betrays.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Communications tools don't get socially interesting until they get technologically boring.</i><br><i>– Clay Shirky.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
