@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Communications tools don't get socially interesting until they get technologically boring.</i><br><i>– Clay Shirky.</i><br></p>
+<p align="center"><br><i>If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.</i><br><i>– Caterina Fake.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
