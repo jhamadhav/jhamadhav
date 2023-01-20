@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>So much technology, so little talent.</i><br><i>– Vernor Vinge.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
