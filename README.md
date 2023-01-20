@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you doubt your power, you give power to your doubt.</i><br><i>– Honoré de Balzac.</i><br></p>
+<p align="center"><br><i>The way is not in the sky. The way is in the heart.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
