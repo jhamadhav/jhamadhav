@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>With the new day comes new strength and new thoughts.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>The pain passes, but the beauty remains.</i><br><i>– Pierre-Auguste Renoir.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
