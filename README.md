@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you wish to be a writer, write.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Just as a candle cannot burn without fire, men cannot live without a spiritual life.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
