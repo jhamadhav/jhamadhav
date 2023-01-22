@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is found only in truth.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>If you wish to be a writer, write.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
