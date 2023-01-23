@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just as a candle cannot burn without fire, men cannot live without a spiritual life.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>You got to be careful if you don't know where you're going, because you might not get there.</i><br><i>– Yogi Berra.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
