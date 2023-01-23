@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.</i><br><i>– Hanya Yanagihara.</i><br></p>
+<p align="center"><br><i>A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.</i><br><i>– David Brinkley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
