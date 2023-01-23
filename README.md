@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.</i><br><i>– David Brinkley.</i><br></p>
+<p align="center"><br><i>Thought is the blossom; language the bud; action the fruit behind it.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
