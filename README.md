@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When a thing is done, it's done. Don't look back. Look forward to your next objective.</i><br><i>– George Marshall.</i><br></p>
+<p align="center"><br><i>Just trust yourself, then you will know how to live.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
