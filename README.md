@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Thought is the blossom; language the bud; action the fruit behind it.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>They say that time changes things, but you actually have to change them yourself.</i><br><i>– Andy Warhol.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
