@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just trust yourself, then you will know how to live.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>He has no enemies, but is intensely disliked by his friends.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
