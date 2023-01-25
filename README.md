@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't shake hands with a clenched fist.</i><br><i>– Indira Gandhi.</i><br></p>
+<p align="center"><br><i>Love is the wisdom of the fool and the folly of the wise.</i><br><i>– Samuel Johnson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
