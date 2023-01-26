@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Knowledge speaks, but wisdom listens.</i><br><i>– Jimi Hendrix.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
