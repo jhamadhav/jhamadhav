@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge speaks, but wisdom listens.</i><br><i>– Jimi Hendrix.</i><br></p>
+<p align="center"><br><i>Some people go to priests; others to poetry; I to my friends.</i><br><i>– Virginia Woolf.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
