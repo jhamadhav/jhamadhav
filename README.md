@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do one thing every day that scares you.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future.</i><br><i>– Dale Turner.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
