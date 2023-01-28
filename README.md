@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more man meditates upon good thoughts, the better will be his world and the world at large.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Formula for success: under promise and over deliver.</i><br><i>– Tom Peters.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
