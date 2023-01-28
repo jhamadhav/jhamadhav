@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The least movement is of importance to all nature. The entire ocean is affected by a pebble.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Reviewing what you have learned and learning anew, you are fit to be a teacher.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
