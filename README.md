@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most people are about as happy as they make up their minds to be</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>The more man meditates upon good thoughts, the better will be his world and the world at large.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
