@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All perceiving is also thinking, all reasoning is also intuition, all observation is also invention.</i><br><i>– Rudolf Arnheim.</i><br></p>
+<p align="center"><br><i>All things change; nothing perishes.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
