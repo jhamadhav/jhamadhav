@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All things change; nothing perishes.</i><br><i>– Ovid.</i><br></p>
+<p align="center"><br><i>The World is my country, all mankind are my brethren, and to do good is my religion.</i><br><i>– Thomas Paine.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
