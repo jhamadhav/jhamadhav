@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reviewing what you have learned and learning anew, you are fit to be a teacher.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>All perceiving is also thinking, all reasoning is also intuition, all observation is also invention.</i><br><i>– Rudolf Arnheim.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
