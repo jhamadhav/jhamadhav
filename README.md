@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To get the full value of joy you must have someone to divide it with.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>He who lives in harmony with himself lives in harmony with the world.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
