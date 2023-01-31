@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Freedom is the right to live as we wish.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Technology has to be invented or adopted.</i><br><i>– Jared Diamond.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
