@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.</i><br><i>– Anne Brontë.</i><br></p>
+<p align="center"><br><i>I know but one freedom and that is the freedom of the mind.</i><br><i>– Antoine de Saint-Exupéry.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
