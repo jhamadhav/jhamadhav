@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.</i><br><i>– William Ellery Channing.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
