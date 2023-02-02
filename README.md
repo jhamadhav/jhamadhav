@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best way out is always through.</i><br><i>– Robert Frost.</i><br></p>
+<p align="center"><br><i>Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.</i><br><i>– Diogenes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
