@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are no limitations to the mind except those we acknowledge.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>I had three chairs in my house; one for solitude, two for friendship, three for society.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
