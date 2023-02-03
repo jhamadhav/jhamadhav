@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most formidable weapon against errors of every kind is reason.</i><br><i>– Thomas Paine.</i><br></p>
+<p align="center"><br><i>With every experience, you alone are painting your own canvas, thought by thought, choice by choice.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
