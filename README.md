@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't look back. Something might be gaining on you.</i><br><i>– Satchel Paige.</i><br></p>
+<p align="center"><br><i>The most formidable weapon against errors of every kind is reason.</i><br><i>– Thomas Paine.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
