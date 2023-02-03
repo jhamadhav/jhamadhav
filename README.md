@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We know the truth, not only by the reason, but by the heart.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Don't look back. Something might be gaining on you.</i><br><i>– Satchel Paige.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
