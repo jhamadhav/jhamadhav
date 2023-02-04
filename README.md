@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>With every experience, you alone are painting your own canvas, thought by thought, choice by choice.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.</i><br><i>– John Steinbeck.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
