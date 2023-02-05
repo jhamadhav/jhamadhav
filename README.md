@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There's power in looking silly and not caring that you do.</i><br><i>– Amy Poehler.</i><br></p>
+<p align="center"><br><i>Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.</i><br><i>– Marie Curie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
