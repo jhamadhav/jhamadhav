@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always be a first-rate version of yourself, instead of a second-rate version of somebody else.</i><br><i>– Judy Garland.</i><br></p>
+<p align="center"><br><i>There's power in looking silly and not caring that you do.</i><br><i>– Amy Poehler.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
