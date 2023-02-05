@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Music is a higher revelation than all wisdom and philosophy.</i><br><i>– Ludwig van Beethoven.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
