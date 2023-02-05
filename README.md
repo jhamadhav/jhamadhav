@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Music is a higher revelation than all wisdom and philosophy.</i><br><i>– Ludwig van Beethoven.</i><br></p>
+<p align="center"><br><i>Always be a first-rate version of yourself, instead of a second-rate version of somebody else.</i><br><i>– Judy Garland.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
