@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You are the only person on earth who can use your ability.</i><br><i>– Zig Ziglar.</i><br></p>
+<p align="center"><br><i>An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage.</i><br><i>– Jack Welch.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
