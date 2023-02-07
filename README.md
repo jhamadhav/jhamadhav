@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are what we repeatedly do. Excellence, then, is not an act, but a habit.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>No party has a monopoly on wisdom. No democracy works without compromise.</i><br><i>– Barack Obama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
