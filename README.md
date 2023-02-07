@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No party has a monopoly on wisdom. No democracy works without compromise.</i><br><i>– Barack Obama.</i><br></p>
+<p align="center"><br><i>Anybody can make history. Only a great man can write it.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
