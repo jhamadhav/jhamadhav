@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Anybody can make history. Only a great man can write it.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>He who is fixed to a star does not change his mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
