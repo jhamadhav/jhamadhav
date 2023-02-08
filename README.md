@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let us always meet each other with smile, for the smile is the beginning of love.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>You'll see it when you believe it.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
