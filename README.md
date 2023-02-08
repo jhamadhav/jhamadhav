@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You'll see it when you believe it.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Light tomorrow with today!</i><br><i>– Elizabeth Browning.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
