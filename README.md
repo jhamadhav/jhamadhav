@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If one does not know to which port is sailing, no wind is favorable.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.</i><br><i>– Billie Jean King.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
