@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Light tomorrow with today!</i><br><i>– Elizabeth Browning.</i><br></p>
+<p align="center"><br><i>Love has no age, no limit; and no death.</i><br><i>– John Galsworthy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
