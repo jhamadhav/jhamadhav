@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.</i><br><i>– Billie Jean King.</i><br></p>
+<p align="center"><br><i>Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others.</i><br><i>– Harriet Lerner.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
