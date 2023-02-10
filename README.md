@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>By accepting yourself and being fully what you are, your presence can make others happy.</i><br><i>– Jane Roberts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
