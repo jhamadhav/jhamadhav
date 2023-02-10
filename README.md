@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>By accepting yourself and being fully what you are, your presence can make others happy.</i><br><i>– Jane Roberts.</i><br></p>
+<p align="center"><br><i>One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.</i><br><i>– Brooks Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
