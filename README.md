@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Failure will never overtake me if my determination to succeed is strong enough.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.</i><br><i>– William Blake.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
