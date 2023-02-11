@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is with words as with sunbeams. The more they are condensed, the deeper they burn.</i><br><i>– Robert Southey.</i><br></p>
+<p align="center"><br><i>The best way out is always through.</i><br><i>– Robert Frost.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
