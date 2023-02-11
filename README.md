@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.</i><br><i>– Brooks Adams.</i><br></p>
+<p align="center"><br><i>Technology presumes there's just one right way to do things and there never is.</i><br><i>– Robert M. Pirsig.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
