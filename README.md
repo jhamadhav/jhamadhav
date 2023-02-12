@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Forgiveness is choosing to love. It is the first skill of self-giving love.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>Fortune favors the brave.</i><br><i>– Virgil.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
