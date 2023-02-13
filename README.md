@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One may say the eternal mystery of the world is its comprehensibility.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>The personal life deeply lived always expands into truths beyond itself.</i><br><i>– Anaïs Nin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
