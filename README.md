@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The personal life deeply lived always expands into truths beyond itself.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>You can't choose up sides on a round world.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
