@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't choose up sides on a round world.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Either I will find a way, or I will make one.</i><br><i>– Philip Sidney.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
