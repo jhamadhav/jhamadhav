@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Either I will find a way, or I will make one.</i><br><i>– Philip Sidney.</i><br></p>
+<p align="center"><br><i>Chaos is inherent in all compounded things. Strive on with diligence.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
