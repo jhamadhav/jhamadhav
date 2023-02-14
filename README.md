@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday I dared to struggle. Today I dare to win.</i><br><i>– Bernadette Devlin.</i><br></p>
+<p align="center"><br><i>Life is a learning experience, only if you learn.</i><br><i>– Yogi Berra.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
