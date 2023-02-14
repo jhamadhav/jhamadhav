@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Chaos is inherent in all compounded things. Strive on with diligence.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
