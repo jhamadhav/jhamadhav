@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is a learning experience, only if you learn.</i><br><i>– Yogi Berra.</i><br></p>
+<p align="center"><br><i>The greatest obstacle to being heroic is the doubt whether one may not be going to prove oneself a fool; the truest heroism is to resist the doubt; and the profoundest wisdom, to know when it ought to be resisted, and when it be obeyed.</i><br><i>– Nathaniel Hawthorne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
