@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.</i><br><i>– Peter Drucker.</i><br></p>
+<p align="center"><br><i>If we open a quarrel between past and present, we shall find that we have lost the future.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
