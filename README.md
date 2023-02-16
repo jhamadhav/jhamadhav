@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>No day in which you learn something is a complete loss.</i><br><i>– David Eddings.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
