@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No day in which you learn something is a complete loss.</i><br><i>– David Eddings.</i><br></p>
+<p align="center"><br><i>Success is where preparation and opportunity meet.</i><br><i>– Bobby Unser.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
