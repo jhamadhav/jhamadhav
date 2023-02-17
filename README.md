@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Success is where preparation and opportunity meet.</i><br><i>– Bobby Unser.</i><br></p>
+<p align="center"><br><i>Spectacular achievement is always preceded by unspectacular preparation.</i><br><i>– Robert Schuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
