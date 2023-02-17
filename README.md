@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A jug fills drop by drop.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Remember that failure is an event, not a person.</i><br><i>– Zig Ziglar.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
