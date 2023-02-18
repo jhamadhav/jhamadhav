@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.</i><br><i>– Sidney Hook.</i><br></p>
+<p align="center"><br><i>Life without love is like a tree without blossoms or fruit.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
