@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom, compassion, and courage are the three universally recognized moral qualities of men.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.</i><br><i>– Sidney Hook.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
