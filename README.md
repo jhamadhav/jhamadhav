@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You have to believe in yourself.</i><br><i>– Sun Tzu.</i><br></p>
+<p align="center"><br><i>True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.</i><br><i>– William Penn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
