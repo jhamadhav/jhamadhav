@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Liberty, taking the word in its concrete sense, consists in the ability to choose.</i><br><i>– Simone Weil.</i><br></p>
+<p align="center"><br><i>Happiness resides not in possessions, and not in gold, happiness dwells in the soul.</i><br><i>– Democritus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
