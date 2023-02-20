@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.</i><br><i>– Robert Southey.</i><br></p>
+<p align="center"><br><i>When you meet someone better than yourself, turn your thoughts to becoming his equal. When you meet someone not as good as you are, look within and examine your own self.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
