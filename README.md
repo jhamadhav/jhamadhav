@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness resides not in possessions, and not in gold, happiness dwells in the soul.</i><br><i>– Democritus.</i><br></p>
+<p align="center"><br><i>Where there is great love, there are always miracles.</i><br><i>– Willa Cather.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
