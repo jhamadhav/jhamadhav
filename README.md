@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Where there is great love, there are always miracles.</i><br><i>– Willa Cather.</i><br></p>
+<p align="center"><br><i>Do not overrate what you have received, nor envy others. He who envies others does not obtain peace of mind.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
