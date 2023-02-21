@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not overrate what you have received, nor envy others. He who envies others does not obtain peace of mind.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
