@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Yesterday's home runs don't win today's games.</i><br><i>– Babe Ruth.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
