@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.</i><br><i>– Barack Obama.</i><br></p>
+<p align="center"><br><i>How we spend our days is, of course, how we spend our lives.</i><br><i>– Annie Dillard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
