@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>How we spend our days is, of course, how we spend our lives.</i><br><i>– Annie Dillard.</i><br></p>
+<p align="center"><br><i>Applause is a receipt, not a bill.</i><br><i>– Dale Carnegie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
