@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I want my friend to miss me as long as I miss him.</i><br><i>– Augustine of Hippo.</i><br></p>
+<p align="center"><br><i>Between saying and doing, many a pair of shoes is worn out.</i><br><i>– Iris Murdoch.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
