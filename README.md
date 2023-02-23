@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I love you the more in that I believe you had liked me for my own sake and for nothing else.</i><br><i>– John Keats.</i><br></p>
+<p align="center"><br><i>I want my friend to miss me as long as I miss him.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
