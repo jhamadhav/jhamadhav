@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Between saying and doing, many a pair of shoes is worn out.</i><br><i>– Iris Murdoch.</i><br></p>
+<p align="center"><br><i>No matter how carefully you plan your goals they will never be more that pipe dreams unless you pursue them with gusto.</i><br><i>– W. Clement Stone.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
