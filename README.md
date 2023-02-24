@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship.</i><br><i>– Harbhajan Singh.</i><br></p>
+<p align="center"><br><i>It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.</i><br><i>– Mignon McLaughlin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
