@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have always thought the actions of men the best interpreters of their thoughts.</i><br><i>– John Locke.</i><br></p>
+<p align="center"><br><i>If you find yourself in a hole, the first thing to do is stop digging.</i><br><i>– Will Rogers.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
