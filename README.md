@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.</i><br><i>– Mignon McLaughlin.</i><br></p>
+<p align="center"><br><i>I have always thought the actions of men the best interpreters of their thoughts.</i><br><i>– John Locke.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
