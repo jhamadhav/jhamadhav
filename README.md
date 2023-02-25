@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you find yourself in a hole, the first thing to do is stop digging.</i><br><i>– Will Rogers.</i><br></p>
+<p align="center"><br><i>We don't stop playing because we grow old; we grow old because we stop playing.</i><br><i>– Bernard Shaw.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
