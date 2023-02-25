@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When times are bad is when the real entrepreneurs emerge.</i><br><i>– Robert Kiyosaki.</i><br></p>
+<p align="center"><br><i>All great achievements require time.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
