@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We don't stop playing because we grow old; we grow old because we stop playing.</i><br><i>– Bernard Shaw.</i><br></p>
+<p align="center"><br><i>When times are bad is when the real entrepreneurs emerge.</i><br><i>– Robert Kiyosaki.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
