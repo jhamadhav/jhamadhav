@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us.</i><br><i>– Isocrates.</i><br></p>
+<p align="center"><br><i>The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.</i><br><i>– Honoré de Balzac.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
