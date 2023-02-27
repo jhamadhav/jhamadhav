@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.</i><br><i>– Audre Lorde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
