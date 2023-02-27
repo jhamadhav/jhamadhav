@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Get busy living or get busy dying.</i><br><i>– Stephen King.</i><br></p>
+<p align="center"><br><i>A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
