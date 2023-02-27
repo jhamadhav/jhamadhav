@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You need chaos in your soul to give birth to a dancing star.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>The thing always happens that you really believe in; and the belief in a thing makes it happen.</i><br><i>– Frank Lloyd Wright.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
