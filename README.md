@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.</i><br><i>– Paramahansa Yogananda.</i><br></p>
+<p align="center"><br><i>Technology made large populations possible; large populations now make technology indispensable.</i><br><i>– Joseph Wood Krutch.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
