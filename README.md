@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology made large populations possible; large populations now make technology indispensable.</i><br><i>– Joseph Wood Krutch.</i><br></p>
+<p align="center"><br><i>Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.</i><br><i>– Bernice Reagon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
