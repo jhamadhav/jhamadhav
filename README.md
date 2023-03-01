@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation.</i><br><i>– Paul Theroux.</i><br></p>
+<p align="center"><br><i>To see things in the seed, that is genius.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
