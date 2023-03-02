@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence is the true friend that never betrays.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Vanity can easily overtake wisdom. It usually overtakes common sense.</i><br><i>– Julian Casablancas.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
