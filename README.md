@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.</i><br><i>– G. K. Chesterton.</i><br></p>
+<p align="center"><br><i>Silence is the sleep that nourishes wisdom.</i><br><i>– Francis Bacon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
