@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowing your own darkness is the best method for dealing with the darkness of other people.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
