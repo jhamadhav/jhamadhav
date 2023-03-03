@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What happens is not as important as how you react to what happens.</i><br><i>– Ellen Glasgow.</i><br></p>
+<p align="center"><br><i>You are important enough to ask and you are blessed enough to receive back.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
