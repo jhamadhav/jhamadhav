@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>What happens is not as important as how you react to what happens.</i><br><i>– Ellen Glasgow.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
