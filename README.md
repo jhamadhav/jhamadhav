@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.</i><br><i>– Anne Brontë.</i><br></p>
+<p align="center"><br><i>It has become appallingly obvious that our technology has exceeded our humanity.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
