@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It has become appallingly obvious that our technology has exceeded our humanity.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>We could never learn to be brave and patient if there were only joy in the world.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
