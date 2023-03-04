@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We could never learn to be brave and patient if there were only joy in the world.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>Only when we are no longer afraid do we begin to live.</i><br><i>– Dorothy Thompson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
