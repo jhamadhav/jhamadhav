@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Only when we are no longer afraid do we begin to live.</i><br><i>– Dorothy Thompson.</i><br></p>
+<p align="center"><br><i>Silence is the true friend that never betrays.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
