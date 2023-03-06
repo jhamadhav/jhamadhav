@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you light a lamp for somebody, it will also brighten your path.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>We must not say every mistake is a foolish one.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
