@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Success consists of going from failure to failure without loss of enthusiasm.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.</i><br><i>– Jim Bouton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
