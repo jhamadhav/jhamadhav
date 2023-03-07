@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Take time to deliberate, but when the time for action has arrived, stop thinking and go in.</i><br><i>– Napoleon.</i><br></p>
+<p align="center"><br><i>We are wiser than we know.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
