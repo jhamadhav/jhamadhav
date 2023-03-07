@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't wait. The time will never be just right.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Much wisdom often goes with fewer words.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
