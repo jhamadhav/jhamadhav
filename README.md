@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Much wisdom often goes with fewer words.</i><br><i>– Sophocles.</i><br></p>
+<p align="center"><br><i>Take time to deliberate, but when the time for action has arrived, stop thinking and go in.</i><br><i>– Napoleon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
