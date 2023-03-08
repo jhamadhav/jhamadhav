@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are wiser than we know.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>The smallest deed is better than the greatest intention.</i><br><i>– John Burroughs.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
