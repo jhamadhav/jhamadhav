@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>People don't notice whether it's winter or summer when they're happy.</i><br><i>– Anton Chekhov.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
