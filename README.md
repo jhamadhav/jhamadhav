@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The smallest deed is better than the greatest intention.</i><br><i>– John Burroughs.</i><br></p>
+<p align="center"><br><i>I always wanted to be somebody, but I should have been more specific.</i><br><i>– Lily Tomlin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
