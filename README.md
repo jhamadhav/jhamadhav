@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.</i><br><i>– Arthur Conan Doyle.</i><br></p>
+<p align="center"><br><i>Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.</i><br><i>– John Wooden.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
