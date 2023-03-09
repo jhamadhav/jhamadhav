@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People don't notice whether it's winter or summer when they're happy.</i><br><i>– Anton Chekhov.</i><br></p>
+<p align="center"><br><i>Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.</i><br><i>– Arthur Conan Doyle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
