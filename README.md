@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who knows others is wise. He who knows himself is enlightened.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Honesty is the best policy.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
