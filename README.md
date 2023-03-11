@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Unless one is able to live fully in the present, the future is a hoax.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Liberty, taking the word in its concrete sense, consists in the ability to choose.</i><br><i>– Simone Weil.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
