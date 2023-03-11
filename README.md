@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Liberty, taking the word in its concrete sense, consists in the ability to choose.</i><br><i>– Simone Weil.</i><br></p>
+<p align="center"><br><i>What is not started today is never finished tomorrow.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
