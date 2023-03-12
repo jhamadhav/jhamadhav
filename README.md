@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be great is to be misunderstood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Speak when you are angry, and you will make the best speech you will ever regret.</i><br><i>– Ambrose Bierce.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
