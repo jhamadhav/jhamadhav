@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Speak when you are angry, and you will make the best speech you will ever regret.</i><br><i>– Ambrose Bierce.</i><br></p>
+<p align="center"><br><i>Beware of missing chances; otherwise it may be altogether too late someday.</i><br><i>– Franz Liszt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
