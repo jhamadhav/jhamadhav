@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.</i><br><i>– William C. Menninger.</i><br></p>
+<p align="center"><br><i>To be great is to be misunderstood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
