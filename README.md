@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Arriving at one point is the starting point to another.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
