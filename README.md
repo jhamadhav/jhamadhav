@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You are important enough to ask and you are blessed enough to receive back.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.</i><br><i>– Uta Hagen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
