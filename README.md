@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The mind unlearns with difficulty what it has long learned.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>We are stuck with technology when what we really want is just stuff that works.</i><br><i>– Douglas Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
