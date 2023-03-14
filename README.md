@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>The mind unlearns with difficulty what it has long learned.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
