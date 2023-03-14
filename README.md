@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never find fault with the absent.</i><br><i>– Alexander Pope.</i><br></p>
+<p align="center"><br><i>Wisdom begins at the end.</i><br><i>– Daniel Webster.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
