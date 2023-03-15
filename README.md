@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom begins at the end.</i><br><i>– Daniel Webster.</i><br></p>
+<p align="center"><br><i>If you're going through hell, keep going.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
