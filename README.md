@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you're going through hell, keep going.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>And as we let our own light shine, we unconsciously give other people permission to do the same.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
