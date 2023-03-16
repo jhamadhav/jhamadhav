@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is a succession of moments. To live each one is to succeed.</i><br><i>– Corita Kent.</i><br></p>
+<p align="center"><br><i>An economist is an expert who will know tomorrow why the things he predicted yesterday didn't happen today.</i><br><i>– Laurence J. Peter.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
