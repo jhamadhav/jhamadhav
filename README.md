@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An economist is an expert who will know tomorrow why the things he predicted yesterday didn't happen today.</i><br><i>– Laurence J. Peter.</i><br></p>
+<p align="center"><br><i>You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
