@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>In separateness lies the world's great misery, in compassion lies the world's true strength.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
