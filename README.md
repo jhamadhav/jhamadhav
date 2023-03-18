@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.</i><br><i>– Dale Carnegie.</i><br></p>
+<p align="center"><br><i>A quarrel between friends, when made up, adds a new tie to friendship.</i><br><i>– Francis de Sales.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
