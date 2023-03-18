@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Genuine sincerity opens people's hearts, while manipulation causes them to close.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>Ideas pull the trigger, but instinct loads the gun.</i><br><i>– Don Marquis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
