@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Kindness is the language which the deaf can hear and the blind can see.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>What wisdom can you find that is greater than kindness?</i><br><i>– Jean-Jacques Rousseau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
