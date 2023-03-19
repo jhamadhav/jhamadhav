@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What wisdom can you find that is greater than kindness?</i><br><i>– Jean-Jacques Rousseau.</i><br></p>
+<p align="center"><br><i>If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.</i><br><i>– Barack Obama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
