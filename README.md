@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No party has a monopoly on wisdom. No democracy works without compromise.</i><br><i>– Barack Obama.</i><br></p>
+<p align="center"><br><i>Habit, if not resisted, soon becomes necessity.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
