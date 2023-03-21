@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All this worldly wisdom was once the unamiable heresy of some wise man.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>Give me a lever long enough and a fulcrum on which to place it, and I shall move the world.</i><br><i>– Archimedes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
