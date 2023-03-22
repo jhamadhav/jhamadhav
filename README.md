@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gratitude is the fairest blossom which springs from the soul.</i><br><i>– Henry K. Beecher.</i><br></p>
+<p align="center"><br><i>Along with success comes a reputation for wisdom.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
