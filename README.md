@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>It is not fair to ask of others what you are unwilling to do yourself.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
