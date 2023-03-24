@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A quarrel between friends, when made up, adds a new tie to friendship.</i><br><i>– Francis de Sales.</i><br></p>
+<p align="center"><br><i>To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
