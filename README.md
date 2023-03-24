@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not fair to ask of others what you are unwilling to do yourself.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation.</i><br><i>– Samuel Richardson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
