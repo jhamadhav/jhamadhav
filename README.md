@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To accomplish great things, we must not only act, but also dream; not only plan, but also believe.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless.</i><br><i>– Caroline Myss.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
