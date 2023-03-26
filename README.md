@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Give whatever you are doing and whoever you are with the gift of your attention.</i><br><i>– Jim Rohn.</i><br></p>
+<p align="center"><br><i>A little knowledge that acts is worth infinitely more than much knowledge that is idle.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
