@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Computers are useless. They can only give you answers.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>If you do what you've always done, you'll get what you've always gotten.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
