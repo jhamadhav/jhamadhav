@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't cross the sea merely by standing and staring at the water.</i><br><i>– Rabindranath Tagore.</i><br></p>
+<p align="center"><br><i>Computers are useless. They can only give you answers.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
