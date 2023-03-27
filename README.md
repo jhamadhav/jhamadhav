@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No one has a finer command of language than the person who keeps his mouth shut.</i><br><i>– Sam Rayburn.</i><br></p>
+<p align="center"><br><i>You can't cross the sea merely by standing and staring at the water.</i><br><i>– Rabindranath Tagore.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
