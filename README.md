@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When I was 40, my doctor advised me that a man in his 40s shouldn't play tennis. I heeded his advice carefully and could hardly wait until I reached 50 to start again.</i><br><i>– Hugo Black.</i><br></p>
+<p align="center"><br><i>No one has a finer command of language than the person who keeps his mouth shut.</i><br><i>– Sam Rayburn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
