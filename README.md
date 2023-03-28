@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself.</i><br><i>– Henry Miller.</i><br></p>
+<p align="center"><br><i>Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!'</i><br><i>– Bill Bradley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
