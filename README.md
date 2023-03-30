@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our greatest glory is not in never falling, but in rising every time we fall.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.</i><br><i>– Samuel Johnson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
