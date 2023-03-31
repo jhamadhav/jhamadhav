@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.</i><br><i>– Charles Lindbergh.</i><br></p>
+<p align="center"><br><i>Rare as is true love, true friendship is rarer.</i><br><i>– Jean de La Fontaine.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
