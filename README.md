@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To lead people walk behind them.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>We shall never know all the good that a simple smile can do.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
