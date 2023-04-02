@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything that happens as it should, and if you observe carefully, you will find this to be so.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>A man is not old as long as he is seeking something.</i><br><i>– Edmond Rostand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
