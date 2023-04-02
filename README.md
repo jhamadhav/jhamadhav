@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You really can change the world if you care enough.</i><br><i>– Marian Wright Edelman.</i><br></p>
+<p align="center"><br><i>Everything that happens as it should, and if you observe carefully, you will find this to be so.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
