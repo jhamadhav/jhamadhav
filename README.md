@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Excellence is not a skill. It is an attitude.</i><br><i>– Ralph Marston.</i><br></p>
+<p align="center"><br><i>You really can change the world if you care enough.</i><br><i>– Marian Wright Edelman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
