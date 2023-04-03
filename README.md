@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never see what has been done; I only see what remains to be done.</i><br><i>– Marie Curie.</i><br></p>
+<p align="center"><br><i>It is only when the mind and character slumber that the dress can be seen.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
