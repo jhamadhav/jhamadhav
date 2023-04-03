@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everyone thinks of changing the world, but no one thinks of changing himself.</i><br><i>– Leo Tolstoy.</i><br></p>
+<p align="center"><br><i>I never see what has been done; I only see what remains to be done.</i><br><i>– Marie Curie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
