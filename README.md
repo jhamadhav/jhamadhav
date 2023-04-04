@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is only when the mind and character slumber that the dress can be seen.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.</i><br><i>– Immanuel Kant.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
