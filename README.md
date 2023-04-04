@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.</i><br><i>– Immanuel Kant.</i><br></p>
+<p align="center"><br><i>All of our technology is completely unnecessary to a happy life.</i><br><i>– Tom Hodgkinson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
