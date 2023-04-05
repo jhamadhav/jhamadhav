@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is never too late to be what you might have been.</i><br><i>– George Eliot.</i><br></p>
+<p align="center"><br><i>We must embrace pain and burn it as fuel for our journey.</i><br><i>– Kenji Miyazawa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
