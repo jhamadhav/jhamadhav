@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>History will be kind to me for I intend to write it.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>It is never too late to be what you might have been.</i><br><i>– George Eliot.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
