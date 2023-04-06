@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man was ever wise by chance.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.</i><br><i>– Jessamyn West.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
