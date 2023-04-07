@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Myths which are believed in tend to become true.</i><br><i>– George Orwell.</i><br></p>
+<p align="center"><br><i>Ignorant men don't know what good they hold in their hands until they've flung it away.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
