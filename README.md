@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want things to be different, perhaps the answer is to become different yourself.</i><br><i>– Norman Vincent Peale.</i><br></p>
+<p align="center"><br><i>As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
