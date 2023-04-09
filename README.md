@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Opportunity does not knock, it presents itself when you beat down the door.</i><br><i>– Kyle Chandler.</i><br></p>
+<p align="center"><br><i>The more you care, the stronger you can be.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
