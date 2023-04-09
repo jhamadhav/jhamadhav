@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The person born with a talent they are meant to use will find their greatest happiness in using it.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Be here now. Be someplace else later. Is that so complicated?</i><br><i>– David Bader.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
