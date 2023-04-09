@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be here now. Be someplace else later. Is that so complicated?</i><br><i>– David Bader.</i><br></p>
+<p align="center"><br><i>Opportunity does not knock, it presents itself when you beat down the door.</i><br><i>– Kyle Chandler.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
