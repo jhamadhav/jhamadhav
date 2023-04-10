@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truth you believe and cling to makes you unavailable to hear anything new.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>Our work is the presentation of our capabilities.</i><br><i>– Edward Gibbon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
