@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our work is the presentation of our capabilities.</i><br><i>– Edward Gibbon.</i><br></p>
+<p align="center"><br><i>All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.</i><br><i>– Immanuel Kant.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
