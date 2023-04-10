@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.</i><br><i>– Immanuel Kant.</i><br></p>
+<p align="center"><br><i>Coming together is a beginning; keeping together is progress; working together is success.</i><br><i>– Edward Everett Hale.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
