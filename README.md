@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more you care, the stronger you can be.</i><br><i>– Jim Rohn.</i><br></p>
+<p align="center"><br><i>The truth you believe and cling to makes you unavailable to hear anything new.</i><br><i>– Pema Chödrön.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
