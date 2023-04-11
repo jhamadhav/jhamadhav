@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Coming together is a beginning; keeping together is progress; working together is success.</i><br><i>– Edward Everett Hale.</i><br></p>
+<p align="center"><br><i>Think big thoughts but relish small pleasures.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
