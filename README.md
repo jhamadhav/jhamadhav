@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your friend is your needs answered.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>Do one thing every day that scares you.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
