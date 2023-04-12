@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There surely is in human nature an inherent propensity to extract all the good out of all the evil.</i><br><i>– Benjamin Haydon.</i><br></p>
+<p align="center"><br><i>Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
