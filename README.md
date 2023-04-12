@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.</i><br><i>– Francis Bacon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
