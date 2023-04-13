@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>TV and the Internet are good because they keep stupid people from spending too much time out in public.</i><br><i>– Douglas Coupland.</i><br></p>
+<p align="center"><br><i>Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
