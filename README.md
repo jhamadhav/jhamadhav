@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend to all is a friend to none.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Most folks are as happy as they make up their minds to be.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
