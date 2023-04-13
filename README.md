@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is a characteristic of wisdom not to do desperate things.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>A friend to all is a friend to none.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
