@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology is destructive only in the hands of people who do not realize that they are one and the same process as the universe.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>See the positive side, the potential, and make an effort.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
