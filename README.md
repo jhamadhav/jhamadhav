@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>See the positive side, the potential, and make an effort.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Leave no stone unturned.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
