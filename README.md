@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most folks are as happy as they make up their minds to be.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Wisdom has its root in goodness, not goodness its root in wisdom.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
