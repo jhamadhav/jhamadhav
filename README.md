@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Leave no stone unturned.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>Spread love everywhere you go. Let no one ever come to you without leaving happier.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
