@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything you are against weakens you. Everything you are for empowers you.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>When the solution is simple, God is answering.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
