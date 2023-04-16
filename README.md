@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When the solution is simple, God is answering.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>I want you to be everything that's you, deep at the center of your being.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
