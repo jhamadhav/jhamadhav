@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything that exists is in a manner the seed of that which will be.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>Victory belongs to the most persevering.</i><br><i>– Napoleon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
