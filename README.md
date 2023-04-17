@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wrinkles should merely indicate where smiles have been.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>In the end we retain from our studies only that which we practically apply.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
