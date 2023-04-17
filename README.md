@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Victory belongs to the most persevering.</i><br><i>– Napoleon.</i><br></p>
+<p align="center"><br><i>If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others.</i><br><i>– Anne Lindbergh.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
