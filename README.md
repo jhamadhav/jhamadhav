@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest way to live with honor in this world is to be what we pretend to be.</i><br><i>– Socrates.</i><br></p>
+<p align="center"><br><i>What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
