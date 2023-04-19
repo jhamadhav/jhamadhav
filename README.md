@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ability will never catch up with the demand for it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Success is where preparation and opportunity meet.</i><br><i>– Bobby Unser.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
