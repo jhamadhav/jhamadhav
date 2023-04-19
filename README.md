@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is certainly the finest balm for the pangs of disappointed love.</i><br><i>– Jane Austen.</i><br></p>
+<p align="center"><br><i>However rare true love may be, it is less so than true friendship.</i><br><i>– François de La Rochefoucauld.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
