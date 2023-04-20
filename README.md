@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Many men go fishing all of their lives without knowing that it is not fish they are after.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.</i><br><i>– Walter Benjamin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
