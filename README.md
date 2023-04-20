@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Success is where preparation and opportunity meet.</i><br><i>– Bobby Unser.</i><br></p>
+<p align="center"><br><i>Many men go fishing all of their lives without knowing that it is not fish they are after.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
