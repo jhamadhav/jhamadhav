@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man is great by deeds, not by birth.</i><br><i>– Chanakya.</i><br></p>
+<p align="center"><br><i>Beware lest you lose the substance by grasping at the shadow.</i><br><i>– Aesop.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
