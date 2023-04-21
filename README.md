@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Beware lest you lose the substance by grasping at the shadow.</i><br><i>– Aesop.</i><br></p>
+<p align="center"><br><i>A real friend is one who walks in when the rest of the world walks out.</i><br><i>– Walter Winchell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
