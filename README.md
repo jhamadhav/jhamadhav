@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Think like a man of action; act like a man of thought.</i><br><i>– Henri Bergson.</i><br></p>
+<p align="center"><br><i>Just as much as we see in others, we have in ourselves.</i><br><i>– William Hazlitt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
