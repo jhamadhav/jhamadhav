@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Think like a man of action; act like a man of thought.</i><br><i>– Henri Bergson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
