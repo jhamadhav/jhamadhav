@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be fully alive, fully human, and completely awake is to be continually thrown out of the nest.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>I can't believe that God put us on this earth to be ordinary.</i><br><i>– Lou Holtz.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
