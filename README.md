@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People ask me what I do in winter when there's no baseball. I'll tell you what I do. I stare out the window and wait for spring.</i><br><i>– Rogers Hornsby.</i><br></p>
+<p align="center"><br><i>Failure will never overtake me if my determination to succeed is strong enough.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
