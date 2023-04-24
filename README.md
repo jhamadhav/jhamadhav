@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>The smallest act of kindness is worth more than the grandest intention.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
