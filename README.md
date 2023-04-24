@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fears are nothing more than a state of mind.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>The way we communicate with others and with ourselves ultimately determines the quality of our lives.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
