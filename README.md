@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The smallest act of kindness is worth more than the grandest intention.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Fears are nothing more than a state of mind.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
