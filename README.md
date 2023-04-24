@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I can't believe that God put us on this earth to be ordinary.</i><br><i>– Lou Holtz.</i><br></p>
+<p align="center"><br><i>Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
