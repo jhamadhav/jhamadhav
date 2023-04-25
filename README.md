@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not wait for leaders; do it alone, person to person.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.</i><br><i>– Edith Wharton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
