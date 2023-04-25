@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Remember that sometimes not getting what you want is a wonderful stroke of luck.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Attitude is a little thing that makes a big difference.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
