@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>As you walk down the fairway of life you must smell the roses, for you only get to play one round.</i><br><i>– Ben Hogan.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
