@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All the world is a stage, And all the men and women merely players. They have their exits and entrances; Each man in his time plays many parts.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
