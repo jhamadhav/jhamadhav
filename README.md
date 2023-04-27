@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The years teach much which the days never know.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Don't leave a stone unturned. It's always something, to know you have done the most you could.</i><br><i>– Charles Dickens.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
