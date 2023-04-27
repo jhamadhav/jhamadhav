@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only true wisdom is in knowing you know nothing.</i><br><i>– Isocrates.</i><br></p>
+<p align="center"><br><i>The years teach much which the days never know.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
