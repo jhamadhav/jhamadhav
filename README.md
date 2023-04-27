@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>As you walk down the fairway of life you must smell the roses, for you only get to play one round.</i><br><i>– Ben Hogan.</i><br></p>
+<p align="center"><br><i>The only true wisdom is in knowing you know nothing.</i><br><i>– Isocrates.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
