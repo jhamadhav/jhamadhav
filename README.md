@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest way to live with honor in this world is to be what we pretend to be.</i><br><i>– Socrates.</i><br></p>
+<p align="center"><br><i>A real friend is one who walks in when the rest of the world walks out.</i><br><i>– Walter Winchell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
