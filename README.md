@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Spectacular achievement is always preceded by unspectacular preparation.</i><br><i>– Robert Schuller.</i><br></p>
+<p align="center"><br><i>The pine stays green in winter... wisdom in hardship.</i><br><i>– Norman Douglas.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
