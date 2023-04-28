@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You cannot find yourself by going into the past. You can find yourself by coming into the present.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>Spectacular achievement is always preceded by unspectacular preparation.</i><br><i>– Robert Schuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
