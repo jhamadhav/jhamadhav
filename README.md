@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
