@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.</i><br><i>– Daniel J. Boorstin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
