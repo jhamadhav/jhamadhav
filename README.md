@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
