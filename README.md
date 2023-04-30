@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Hatred is never appeased by hatred in this world. By non-hatred alone is hatred appeased. This is a law eternal.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Everything you can imagine is real.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
