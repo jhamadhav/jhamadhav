@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another?</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
