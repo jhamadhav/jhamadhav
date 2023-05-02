@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Adversity causes some men to break, others to break records.</i><br><i>– William Arthur Ward.</i><br></p>
+<p align="center"><br><i>Everything that happens as it should, and if you observe carefully, you will find this to be so.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
