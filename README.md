@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Share your smile with the world. It's a symbol of friendship and peace.</i><br><i>– Christie Brinkley.</i><br></p>
+<p align="center"><br><i>Adversity causes some men to break, others to break records.</i><br><i>– William Arthur Ward.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
