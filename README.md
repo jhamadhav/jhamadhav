@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything that happens as it should, and if you observe carefully, you will find this to be so.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
