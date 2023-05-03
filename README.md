@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.</i><br><i>– William James.</i><br></p>
+<p align="center"><br><i>And as we let our own light shine, we unconsciously give other people permission to do the same.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
