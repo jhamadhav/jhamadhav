@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Freedom is what you do with what's been done to you.</i><br><i>– Jean-Paul Sartre.</i><br></p>
+<p align="center"><br><i>Business, you know, may bring you money, but friendship hardly ever does.</i><br><i>– Jane Austen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
