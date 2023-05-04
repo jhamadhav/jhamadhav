@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Business, you know, may bring you money, but friendship hardly ever does.</i><br><i>– Jane Austen.</i><br></p>
+<p align="center"><br><i>A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.</i><br><i>– Isaac Asimov.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
