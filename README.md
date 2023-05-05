@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.</i><br><i>– Isaac Asimov.</i><br></p>
+<p align="center"><br><i>Tell me and I forget. Teach me and I remember. Involve me and I learn.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
