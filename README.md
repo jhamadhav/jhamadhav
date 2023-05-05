@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Tell me and I forget. Teach me and I remember. Involve me and I learn.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>No man was ever wise by chance.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
