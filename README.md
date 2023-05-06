@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no way to happiness, happiness is the way.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>I can, therefore I am.</i><br><i>– Simone Weil.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
