@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't cry because it's over. Smile because it happened.</i><br><i>– Dr. Seuss.</i><br></p>
+<p align="center"><br><i>Good actions give strength to ourselves and inspire good actions in others.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
