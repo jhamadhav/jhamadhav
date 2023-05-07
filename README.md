@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good actions give strength to ourselves and inspire good actions in others.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one.</i><br><i>– John Lennon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
