@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One of the advantages of being disorderly is that one is constantly making exciting discoveries.</i><br><i>– A. A. Milne.</i><br></p>
+<p align="center"><br><i>In order to succeed, we must first believe that we can.</i><br><i>– Nikos Kazantzakis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
