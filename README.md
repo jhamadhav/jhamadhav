@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>It is on our failures that we base a new and different and better success.</i><br><i>– Havelock Ellis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
