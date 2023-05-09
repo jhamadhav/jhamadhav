@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Thought is the blossom; language the bud; action the fruit behind it.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Give whatever you are doing and whoever you are with the gift of your attention.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
