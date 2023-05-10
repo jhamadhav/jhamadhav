@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>The noblest worship is to make yourself as good and as just as you can.</i><br><i>– Isocrates.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
