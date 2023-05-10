@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
