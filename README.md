@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The noblest worship is to make yourself as good and as just as you can.</i><br><i>– Isocrates.</i><br></p>
+<p align="center"><br><i>The best thing about the future is that it only comes one day at a time.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
