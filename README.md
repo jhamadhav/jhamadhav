@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those who cling to perceptions and views wander the world offending people.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.</i><br><i>– Amy Tan.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
