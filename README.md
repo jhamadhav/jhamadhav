@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.</i><br><i>– Amy Tan.</i><br></p>
+<p align="center"><br><i>Success is not final; failure is not fatal: it is the courage to continue that counts.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
