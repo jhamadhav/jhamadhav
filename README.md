@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If the shoe doesn't fit, must we change the foot?</i><br><i>– Gloria Steinem.</i><br></p>
+<p align="center"><br><i>Discipline is the bridge between goals and accomplishment.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
