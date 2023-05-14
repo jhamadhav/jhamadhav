@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.</i><br><i>– G. K. Chesterton.</i><br></p>
+<p align="center"><br><i>In three words I can sum up everything I've learned about life: it goes on.</i><br><i>– Robert Frost.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
