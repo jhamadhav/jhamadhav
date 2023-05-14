@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Discipline is the bridge between goals and accomplishment.</i><br><i>– Jim Rohn.</i><br></p>
+<p align="center"><br><i>I gave my life to become the person I am right now. Was it worth it?</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
