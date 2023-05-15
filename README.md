@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our character is what we do when we think no one is looking.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
+<p align="center"><br><i>People are not lazy. They simply have impotent goals - that is, goals that do not inspire them.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
