@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>If you want your life to be more rewarding, you have to change the way you think.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
