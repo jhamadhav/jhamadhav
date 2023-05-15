@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People are not lazy. They simply have impotent goals - that is, goals that do not inspire them.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
