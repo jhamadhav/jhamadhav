@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not only for what we do that we are held responsible, but also for what we do not do.</i><br><i>– Molière.</i><br></p>
+<p align="center"><br><i>Learning without reflection is a waste, reflection without learning is dangerous.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
