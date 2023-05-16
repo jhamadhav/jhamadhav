@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God.</i><br><i>– Aeschylus.</i><br></p>
+<p align="center"><br><i>Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
