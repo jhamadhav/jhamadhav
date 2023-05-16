@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>It is not only for what we do that we are held responsible, but also for what we do not do.</i><br><i>– Molière.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
