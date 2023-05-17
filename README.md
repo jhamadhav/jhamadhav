@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>Without hard work, nothing grows but weeds.</i><br><i>– Gordon Hinckley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
