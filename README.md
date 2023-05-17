@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It all depends on how we look at things, and not how they are in themselves.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.</i><br><i>– A. Powell Davies.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
