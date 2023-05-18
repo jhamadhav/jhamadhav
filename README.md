@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.</i><br><i>– Sri Chinmoy.</i><br></p>
+<p align="center"><br><i>Do good by stealth, and blush to find it fame.</i><br><i>– Alexander Pope.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
