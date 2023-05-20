@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Act as if what you do makes a difference. It does.</i><br><i>– William James.</i><br></p>
+<p align="center"><br><i>Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
