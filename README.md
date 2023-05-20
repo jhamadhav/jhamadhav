@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology made large populations possible; large populations now make technology indispensable.</i><br><i>– Joseph Wood Krutch.</i><br></p>
+<p align="center"><br><i>I have learned that friendship isn't about who you've known the longest, it's about who came and never left your side.</i><br><i>– Yolanda Hadid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
