@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There never was a good knife made of bad steel.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>Habit, if not resisted, soon becomes necessity.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
