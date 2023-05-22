@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Habit, if not resisted, soon becomes necessity.</i><br><i>– Augustine of Hippo.</i><br></p>
+<p align="center"><br><i>The fewer rules a coach has, the fewer rules there are for players to break.</i><br><i>– John Madden.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
