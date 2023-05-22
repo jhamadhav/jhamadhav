@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>With pride, there are many curses. With humility, there come many blessings.</i><br><i>– Ezra Taft Benson.</i><br></p>
+<p align="center"><br><i>To change one's life, start immediately, do it flamboyantly, no exceptions.</i><br><i>– William James.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
