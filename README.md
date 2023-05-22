@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To change one's life, start immediately, do it flamboyantly, no exceptions.</i><br><i>– William James.</i><br></p>
+<p align="center"><br><i>There never was a good knife made of bad steel.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
