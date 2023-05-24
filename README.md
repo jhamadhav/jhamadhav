@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.</i><br><i>– Plutarch.</i><br></p>
+<p align="center"><br><i>Remember that a gesture of friendship, no matter how small, is always appreciated.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
