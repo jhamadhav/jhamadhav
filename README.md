@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If I were two-faced, would I be wearing this one?</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>The sum of wisdom is that time is never lost that is devoted to work.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
