@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want to kill any idea in the world, get a committee working on it.</i><br><i>– Charles F. Kettering.</i><br></p>
+<p align="center"><br><i>If I were two-faced, would I be wearing this one?</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
