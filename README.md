@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never see what has been done; I only see what remains to be done.</i><br><i>– Marie Curie.</i><br></p>
+<p align="center"><br><i>If you want to kill any idea in the world, get a committee working on it.</i><br><i>– Charles F. Kettering.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
