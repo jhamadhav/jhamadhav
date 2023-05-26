@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The sum of wisdom is that time is never lost that is devoted to work.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>The best way out is always through.</i><br><i>– Robert Frost.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
