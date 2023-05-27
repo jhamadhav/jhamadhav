@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Not what we have but what we enjoy constitutes our abundance.</i><br><i>– Jean Antoine Petit-Senn.</i><br></p>
+<p align="center"><br><i>There is only one success: to be able to spend your life in your own way.</i><br><i>– Christopher Morley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
