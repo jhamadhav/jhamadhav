@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it.</i><br><i>– John Steinbeck.</i><br></p>
+<p align="center"><br><i>Life is not a problem to be solved, but a reality to be experienced.</i><br><i>– Søren Kierkegaard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
