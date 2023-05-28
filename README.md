@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Having nothing, nothing can he lose.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>The man who trusts men will make fewer mistakes than he who distrusts them.</i><br><i>– Camillo Benso, Count of Cavour.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
