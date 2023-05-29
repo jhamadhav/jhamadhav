@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>A friend is what the heart needs all the time.</i><br><i>– Henry van Dyke Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
