@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is not one big cosmic meaning for all, there is only the meaning we each give to our life.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.</i><br><i>– Anatole France.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
