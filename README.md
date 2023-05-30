@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never bend your head. Always hold it high. Look the world right in the eye.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>A man cannot be said to succeed in this life who does not satisfy one friend.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
