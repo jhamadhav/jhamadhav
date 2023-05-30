@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world.</i><br><i>– Harriet Tubman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
