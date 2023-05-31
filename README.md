@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you have one true friend, you have more than your share.</i><br><i>– Thomas Fuller.</i><br></p>
+<p align="center"><br><i>All human wisdom is summed up in two words; wait and hope.</i><br><i>– Alexandre Dumas.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
