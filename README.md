@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.</i><br><i>– Cecil B. DeMille.</i><br></p>
+<p align="center"><br><i>The Superior Man is aware of Righteousness, the inferior man is aware of advantage.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
