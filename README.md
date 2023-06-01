@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All human wisdom is summed up in two words; wait and hope.</i><br><i>– Alexandre Dumas.</i><br></p>
+<p align="center"><br><i>If we are not fully ourselves, truly in the present moment, we miss everything.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
