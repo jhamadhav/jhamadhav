@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is composed of a single soul inhabiting two bodies.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Three things in human life are important. The first is to be kind. The second is to be kind. The third is to be kind.</i><br><i>– Henry James.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
