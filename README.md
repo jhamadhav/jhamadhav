@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The awareness of our own strength makes us modest.</i><br><i>– Paul Cézanne.</i><br></p>
+<p align="center"><br><i>A friend in power is a friend lost.</i><br><i>– Henry Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
