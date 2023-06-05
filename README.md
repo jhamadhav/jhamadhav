@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Computers are like bikinis. They save people a lot of guesswork.</i><br><i>– Sam Ewing.</i><br></p>
+<p align="center"><br><i>Great minds discuss ideas; average minds discuss events; small minds discuss people.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
