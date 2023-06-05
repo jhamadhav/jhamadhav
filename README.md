@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success.</i><br><i>– John Locke.</i><br></p>
+<p align="center"><br><i>Don't leave a stone unturned. It's always something, to know you have done the most you could.</i><br><i>– Charles Dickens.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
