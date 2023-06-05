@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Short words are best and the old words when short are best of all.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success.</i><br><i>– John Locke.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
