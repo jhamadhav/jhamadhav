@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who hath many friends hath none.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
