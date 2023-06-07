@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be wronged is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Love does not consist of gazing at each other, but in looking together in the same direction.</i><br><i>– Antoine de Saint-Exupéry.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
