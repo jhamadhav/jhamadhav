@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love does not consist of gazing at each other, but in looking together in the same direction.</i><br><i>– Antoine de Saint-Exupéry.</i><br></p>
+<p align="center"><br><i>Better be ignorant of a matter than half know it.</i><br><i>– Publilius Syrus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
