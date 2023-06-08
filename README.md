@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Better be ignorant of a matter than half know it.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>Nothing happens unless first we dream.</i><br><i>– Carl Sandburg.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
