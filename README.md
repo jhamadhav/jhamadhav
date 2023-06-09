@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I cannot always control what goes on outside. But I can always control what goes on inside.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
