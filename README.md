@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>It is not only for what we do that we are held responsible, but also for what we do not do.</i><br><i>– Molière.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
