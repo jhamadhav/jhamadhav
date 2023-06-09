@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not only for what we do that we are held responsible, but also for what we do not do.</i><br><i>– Molière.</i><br></p>
+<p align="center"><br><i>Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.</i><br><i>– Francis of Assisi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
