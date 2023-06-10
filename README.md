@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.</i><br><i>– Jean-Paul Sartre.</i><br></p>
+<p align="center"><br><i>It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
