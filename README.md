@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world.</i><br><i>– Margaret Laurence.</i><br></p>
+<p align="center"><br><i>The only thing to do with good advice is to pass it on. It is never of any use to oneself.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
