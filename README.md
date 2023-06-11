@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only thing to do with good advice is to pass it on. It is never of any use to oneself.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>I have done my best: that is about all the philosophy of living one needs.</i><br><i>– Lin Yutang.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
