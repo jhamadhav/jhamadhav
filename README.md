@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have done my best: that is about all the philosophy of living one needs.</i><br><i>– Lin Yutang.</i><br></p>
+<p align="center"><br><i>Accept challenges, so that you may feel the exhilaration of victory.</i><br><i>– George S. Patton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
