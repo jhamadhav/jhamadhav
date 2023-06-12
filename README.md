@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.</i><br><i>– Arthur Rubinstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
