@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Accept challenges, so that you may feel the exhilaration of victory.</i><br><i>– George S. Patton.</i><br></p>
+<p align="center"><br><i>Cunning... is but the low mimic of wisdom.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
