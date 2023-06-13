@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Anticipate the difficult by managing the easy.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.</i><br><i>– W. Clement Stone.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
