@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Pick battles big enough to matter, small enough to win.</i><br><i>– Jonathan Kozol.</i><br></p>
+<p align="center"><br><i>A poem begins in delight and ends in wisdom.</i><br><i>– Robert Frost.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
