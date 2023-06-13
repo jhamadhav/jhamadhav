@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.</i><br><i>– W. Clement Stone.</i><br></p>
+<p align="center"><br><i>Pick battles big enough to matter, small enough to win.</i><br><i>– Jonathan Kozol.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
