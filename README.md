@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We make our own fortunes and we call them fate.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>Formula for success: under promise and over deliver.</i><br><i>– Tom Peters.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
