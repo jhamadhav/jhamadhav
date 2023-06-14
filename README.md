@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Think as a wise man but communicate in the language of the people.</i><br><i>– William Butler Yeats.</i><br></p>
+<p align="center"><br><i>We make our own fortunes and we call them fate.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
