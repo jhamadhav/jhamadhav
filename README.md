@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do something wonderful, people may imitate it.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>Think as a wise man but communicate in the language of the people.</i><br><i>– William Butler Yeats.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
