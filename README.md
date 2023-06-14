@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A poem begins in delight and ends in wisdom.</i><br><i>– Robert Frost.</i><br></p>
+<p align="center"><br><i>Do something wonderful, people may imitate it.</i><br><i>– Albert Schweitzer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
