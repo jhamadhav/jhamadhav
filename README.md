@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Formula for success: under promise and over deliver.</i><br><i>– Tom Peters.</i><br></p>
+<p align="center"><br><i>Whatever has the nature of arising has the nature of ceasing.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
