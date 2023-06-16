@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.</i><br><i>– Satchel Paige.</i><br></p>
+<p align="center"><br><i>Remember that failure is an event, not a person.</i><br><i>– Zig Ziglar.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
