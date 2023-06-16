@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.</i><br><i>– Satchel Paige.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
