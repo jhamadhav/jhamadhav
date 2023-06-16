@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The fox has many tricks. The hedgehog has but one. But that is the best of all.</i><br><i>– Erasmus.</i><br></p>
+<p align="center"><br><i>Take rest; a field that has rested gives a bountiful crop.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
