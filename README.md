@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>But at any rate, the point is that God is what nobody admits to being, and everybody really is.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>By failing to prepare, you are preparing to fail.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
