@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise men make more opportunities than they find.</i><br><i>– Francis Bacon.</i><br></p>
+<p align="center"><br><i>We choose our joys and sorrows long before we experience them.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
