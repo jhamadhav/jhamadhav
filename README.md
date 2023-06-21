@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.</i><br><i>– William Saroyan.</i><br></p>
+<p align="center"><br><i>I do not know the American gentleman, god forgive me for putting two such words together.</i><br><i>– Charles Dickens.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
