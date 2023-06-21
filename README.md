@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I do not know the American gentleman, god forgive me for putting two such words together.</i><br><i>– Charles Dickens.</i><br></p>
+<p align="center"><br><i>The cautious seldom err.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
