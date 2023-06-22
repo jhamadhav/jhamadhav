@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is the power to put our time and our knowledge to the proper use.</i><br><i>– Thomas J. Watson.</i><br></p>
+<p align="center"><br><i>When the solution is simple, God is answering.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
