@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.</i><br><i>– Gloria Steinem.</i><br></p>
+<p align="center"><br><i>It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
