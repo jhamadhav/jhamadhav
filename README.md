@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.</i><br><i>– David Rockefeller.</i><br></p>
+<p align="center"><br><i>Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.</i><br><i>– George Santayana.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
