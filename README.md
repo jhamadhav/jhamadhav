@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>It is fatal to enter any war without the will to win it.</i><br><i>– Douglas MacArthur.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
