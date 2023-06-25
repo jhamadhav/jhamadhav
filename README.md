@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.</i><br><i>– George Santayana.</i><br></p>
+<p align="center"><br><i>Silence at the proper season is wisdom, and better than any speech.</i><br><i>– Plutarch.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
