@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best cure for the body is a quiet mind.</i><br><i>– Napoleon.</i><br></p>
+<p align="center"><br><i>What lies behind us and what lies before us are tiny matters compared to what lies within us.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
