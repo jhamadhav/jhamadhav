@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun.</i><br><i>– Chuck Swindoll.</i><br></p>
+<p align="center"><br><i>The best cure for the body is a quiet mind.</i><br><i>– Napoleon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
