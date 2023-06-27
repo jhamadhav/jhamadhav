@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only limit to our realization of tomorrow will be our doubts of today.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
+<p align="center"><br><i>Love and friendship exclude each other.</i><br><i>– Jean de La Bruyère.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
