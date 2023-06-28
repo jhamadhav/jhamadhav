@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>Science is organized knowledge. Wisdom is organized life.</i><br><i>– Immanuel Kant.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
