@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A thing long expected takes the form of the unexpected when at last it comes.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery.</i><br><i>– Anaïs Nin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
