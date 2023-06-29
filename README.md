@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success.</i><br><i>– Swami Vivekananda.</i><br></p>
+<p align="center"><br><i>Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together.</i><br><i>– Mariella Frostrup.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
