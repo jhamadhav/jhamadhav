@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time stays long enough for anyone who will use it.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>The person born with a talent they are meant to use will find their greatest happiness in using it.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
