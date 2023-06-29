@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The person born with a talent they are meant to use will find their greatest happiness in using it.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>The secret of business is to know something that nobody else knows.</i><br><i>– Aristotle Onassis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
