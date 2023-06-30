@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The secret of business is to know something that nobody else knows.</i><br><i>– Aristotle Onassis.</i><br></p>
+<p align="center"><br><i>What do we live for, if it is not to make life less difficult for each other?</i><br><i>– George Eliot.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
