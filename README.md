@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What do we live for, if it is not to make life less difficult for each other?</i><br><i>– George Eliot.</i><br></p>
+<p align="center"><br><i>Nothing is at last sacred but the integrity of your own mind.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
