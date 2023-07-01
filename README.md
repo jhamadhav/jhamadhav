@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An ant on the move does more than a dozing ox</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Conditions fall apart. Persist with diligence.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
