@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>An ant on the move does more than a dozing ox</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
