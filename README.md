@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sooner or later, those who win are those who think they can.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Where there is great love, there are always miracles.</i><br><i>– Willa Cather.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
