@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Conditions fall apart. Persist with diligence.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Sooner or later, those who win are those who think they can.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
