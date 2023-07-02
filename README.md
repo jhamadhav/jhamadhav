@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Where there is great love, there are always miracles.</i><br><i>– Willa Cather.</i><br></p>
+<p align="center"><br><i>Fame usually comes to those who are thinking about something else.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
