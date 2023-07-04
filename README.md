@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>As an organizer I start from where the world is, as it is, not as I would like it to be.</i><br><i>– Saul Alinsky.</i><br></p>
+<p align="center"><br><i>Effort only fully releases its reward after a person refuses to quit.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
