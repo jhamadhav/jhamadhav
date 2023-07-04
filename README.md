@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Blessed are the hearts that can bend; they shall never be broken.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>Some people are born on third base and go through life thinking they hit a triple.</i><br><i>– Barry Switzer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
