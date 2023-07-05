@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Effort only fully releases its reward after a person refuses to quit.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Sincerity is the way of Heaven. The attainment of sincerity is the way of men.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
