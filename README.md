@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man is not old as long as he is seeking something.</i><br><i>– Edmond Rostand.</i><br></p>
+<p align="center"><br><i>It is not fair to ask of others what you are unwilling to do yourself.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
