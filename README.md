@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.</i><br><i>– Edith Wharton.</i><br></p>
+<p align="center"><br><i>It does not matter how slowly you go as long as you do not stop.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
