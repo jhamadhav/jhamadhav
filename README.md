@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It does not matter how slowly you go as long as you do not stop.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Your worst enemy cannot harm you as much as your own unguarded thoughts.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
