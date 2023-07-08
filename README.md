@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowing is not enough; we must apply. Willing is not enough; we must do.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.</i><br><i>– Pema Chödrön.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
