@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>He who lives in harmony with himself lives in harmony with the universe.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
