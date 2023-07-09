@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>Few people are capable of expressing with equanimity opinions which differ from the prejudices of their social environment. Most people are even incapable of forming such opinions.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
