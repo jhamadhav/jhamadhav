@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nature is a mutable cloud which is always and never the same.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.</i><br><i>– Joseph Prince.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
