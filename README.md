@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.</i><br><i>– Joseph Prince.</i><br></p>
+<p align="center"><br><i>Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
