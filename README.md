@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When your desires are strong enough you will appear to possess superhuman powers to achieve.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Never accept ultimatums, conventional wisdom, or absolutes.</i><br><i>– Christopher Reeve.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
