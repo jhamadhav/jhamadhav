@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We will develop and cultivate the liberation of mind by lovingkindness, make it our vehicle, make it our basis, stabilize it, exercise ourselves in it, and fully perfect it.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Until you make peace with who you are, you'll never be content with what you have.</i><br><i>– Doris Mortman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
