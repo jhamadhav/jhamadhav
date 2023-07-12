@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A true friend is one who overlooks your failures and tolerates your success!</i><br><i>– Doug Larson.</i><br></p>
+<p align="center"><br><i>The most complicated achievements of thought are possible without the assistance of consciousness.</i><br><i>– Sigmund Freud.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
