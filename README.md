@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man's growth is seen in the successive choirs of his friends</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>We do not quit playing because we grow old, we grow old because we quit playing.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
