@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's supposed to be automatic, but actually you have to push this button.</i><br><i>– John Brunner.</i><br></p>
+<p align="center"><br><i>Every day is a new opportunity. You can build on yesterday's success or put its failures behind and start over again. That's the way life is, with a new game every day, and that's the way baseball is.</i><br><i>– Bob Feller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
