@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To have much learning and skill, to be well-trained in discipline, and good in speech — this is the highest blessing.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.</i><br><i>– Gloria Steinem.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
