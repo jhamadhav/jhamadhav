@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want.</i><br><i>– Muhammad Ali.</i><br></p>
+<p align="center"><br><i>To have much learning and skill, to be well-trained in discipline, and good in speech — this is the highest blessing.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
