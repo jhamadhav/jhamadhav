@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>It is the quality of our work which will please God, not the quantity.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
