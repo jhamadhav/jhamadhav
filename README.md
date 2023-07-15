@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Once you choose hope, anything's possible.</i><br><i>– Christopher Reeve.</i><br></p>
+<p align="center"><br><i>Strong beliefs win strong men, and then make them stronger.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
