@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no charm equal to tenderness of heart.</i><br><i>– Jane Austen.</i><br></p>
+<p align="center"><br><i>Ask yourself the secret of your success. Listen to your answer and practice it.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
