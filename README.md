@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.</i><br><i>– Reinhold Niebuhr.</i><br></p>
+<p align="center"><br><i>Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.</i><br><i>– Nikola Tesla.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
