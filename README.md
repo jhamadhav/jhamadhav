@@ -32,7 +32,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.</i><br><i>– Nikola Tesla.</i><br></p>
+<p align="center"><br><i>There is no charm equal to tenderness of heart.</i><br><i>– Jane Austen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
