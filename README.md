@@ -2,8 +2,6 @@
 <a target="_blank" href="https://jhamadhav.com/" alt="Hi, there👋 I'm Madhav Jha"><img src="./media/intro.gif"></img></a>
 </p>
 
-![visitors](https://visitor-badge-reloaded.herokuapp.com/badge?page_id=jhamadhav.jhamadhav&color=44CC11)
-
 ## 📢 I'm a Student, Developer, and not a Robot🤖!!
 
 - 🔭 Check out my amazing firefox extension [Google Meet | Push To Talk](https://addons.mozilla.org/en-US/firefox/addon/google-push-to-talk/)
@@ -26,10 +24,6 @@
 ---
 
 [![Madhav's GitHub stats](https://github-readme-stats.vercel.app/api?username=jhamadhav&bg_color=172030&title_color=00FFFF&show_icons=true&hide_border=true&text_color=fff&icon_color=E0FFFF)](https://github.com/anuraghazra/github-readme-stats)
-
----
-
-![jhamadhav's GitHub activity graph](https://activity-graph.herokuapp.com/graph?username=jhamadhav&theme=rogue&hide_border=true&area=true)
 
 ---
 <!-- QUOTE:START -->
