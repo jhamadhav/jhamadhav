@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I can't listen to that much Wagner. I start getting the urge to conquer Poland.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
