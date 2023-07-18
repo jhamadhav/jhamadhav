@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The road of excess leads to the palace of wisdom.</i><br><i>– William Blake.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
