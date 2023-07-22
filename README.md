@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>The happiness of a man in this life does not consist in the absence but in the mastery of his passions.</i><br><i>– Alfred Tennyson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
