@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The happiness of a man in this life does not consist in the absence but in the mastery of his passions.</i><br><i>– Alfred Tennyson.</i><br></p>
+<p align="center"><br><i>Never mistake motion for action.</i><br><i>– Ernest Hemingway.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
