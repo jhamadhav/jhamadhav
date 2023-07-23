@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Mistakes are always forgivable, if one has the courage to admit them.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>Allow the world to live as it chooses, and allow yourself to live as you choose.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
