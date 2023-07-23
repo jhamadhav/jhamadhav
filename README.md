@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Allow the world to live as it chooses, and allow yourself to live as you choose.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Do you want to know who you are? Don't ask. Act! Action will delineate and define you.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
