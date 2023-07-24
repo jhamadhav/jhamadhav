@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The hours of folly are measured by the clock; but of wisdom, no clock can measure.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>The cause is hidden. The effect is visible to all.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
