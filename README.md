@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowing is not enough; we must apply!</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Give whatever you are doing and whoever you are with the gift of your attention.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
