@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Truth is powerful and it prevails.</i><br><i>– Sojourner Truth.</i><br></p>
+<p align="center"><br><i>Knowing is not enough; we must apply!</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
