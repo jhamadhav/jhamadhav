@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship without self-interest is one of the rare and beautiful things of life.</i><br><i>– James F. Byrnes.</i><br></p>
+<p align="center"><br><i>Life is what happens to you while you're busy making other plans.</i><br><i>– John Lennon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
