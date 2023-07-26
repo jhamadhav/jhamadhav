@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is certainly the finest balm for the pangs of disappointed love.</i><br><i>– Jane Austen.</i><br></p>
+<p align="center"><br><i>Friendship without self-interest is one of the rare and beautiful things of life.</i><br><i>– James F. Byrnes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
