@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom consists of the anticipation of consequences.</i><br><i>– Norman Cousins.</i><br></p>
+<p align="center"><br><i>If you love someone, set them free. If they come back, they're yours; if they don't, they never were.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
