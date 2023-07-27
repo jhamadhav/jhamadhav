@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A thing well said will be wit in all languages.</i><br><i>– John Dryden.</i><br></p>
+<p align="center"><br><i>Spectacular achievement is always preceded by unspectacular preparation.</i><br><i>– Robert Schuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
