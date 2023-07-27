@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love and compassion open our own inner life, reducing stress, distrust and loneliness.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Until you make peace with who you are, you'll never be content with what you have.</i><br><i>– Doris Mortman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
