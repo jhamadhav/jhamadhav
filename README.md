@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you love someone, set them free. If they come back, they're yours; if they don't, they never were.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Love and compassion open our own inner life, reducing stress, distrust and loneliness.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
