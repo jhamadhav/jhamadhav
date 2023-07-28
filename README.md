@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.</i><br><i>– François de La Rochefoucauld.</i><br></p>
+<p align="center"><br><i>The human spirit must prevail over technology.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
