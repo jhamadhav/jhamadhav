@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Spectacular achievement is always preceded by unspectacular preparation.</i><br><i>– Robert Schuller.</i><br></p>
+<p align="center"><br><i>In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.</i><br><i>– François de La Rochefoucauld.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
