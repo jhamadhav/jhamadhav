@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The real danger is not that computers will begin to think like men, but that men will begin to think like computers.</i><br><i>– Sydney J. Harris.</i><br></p>
+<p align="center"><br><i>Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.</i><br><i>– Doug Larson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
