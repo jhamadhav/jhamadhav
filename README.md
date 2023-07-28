@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The human spirit must prevail over technology.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>The real danger is not that computers will begin to think like men, but that men will begin to think like computers.</i><br><i>– Sydney J. Harris.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
