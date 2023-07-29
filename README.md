@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our intention creates our reality.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Without hard work, nothing grows but weeds.</i><br><i>– Gordon Hinckley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
