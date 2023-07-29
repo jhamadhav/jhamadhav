@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.</i><br><i>– Eustace Budgell.</i><br></p>
+<p align="center"><br><i>The sincere friends of this world are as ship lights in the stormiest of nights.</i><br><i>– Giotto.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
