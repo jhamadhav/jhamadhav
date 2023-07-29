@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.</i><br><i>– Doug Larson.</i><br></p>
+<p align="center"><br><i>Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.</i><br><i>– Eustace Budgell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
