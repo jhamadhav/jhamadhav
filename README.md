@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
