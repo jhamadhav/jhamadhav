@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Without hard work, nothing grows but weeds.</i><br><i>– Gordon Hinckley.</i><br></p>
+<p align="center"><br><i>Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
