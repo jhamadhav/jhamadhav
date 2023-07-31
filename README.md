@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>What worries you masters you.</i><br><i>– Haddon Robinson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
