@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You just can't beat the person who never gives up.</i><br><i>– Babe Ruth.</i><br></p>
+<p align="center"><br><i>The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
