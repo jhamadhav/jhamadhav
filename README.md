@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Creativity comes from trust. Trust your instincts. And never hope more than you work.</i><br><i>– Rita Mae Brown.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
