@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Creativity comes from trust. Trust your instincts. And never hope more than you work.</i><br><i>– Rita Mae Brown.</i><br></p>
+<p align="center"><br><i>You just can't beat the person who never gives up.</i><br><i>– Babe Ruth.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
