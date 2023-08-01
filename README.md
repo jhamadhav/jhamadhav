@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What worries you masters you.</i><br><i>– Haddon Robinson.</i><br></p>
+<p align="center"><br><i>Without courage, wisdom bears no fruit.</i><br><i>– Baltasar Gracián.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
