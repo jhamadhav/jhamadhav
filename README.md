@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Without courage, wisdom bears no fruit.</i><br><i>– Baltasar Gracián.</i><br></p>
+<p align="center"><br><i>Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
