@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is movement-we breathe, we eat, we walk, we move!</i><br><i>– John Pierrakos.</i><br></p>
+<p align="center"><br><i>Things that were hard to bear are sweet to remember.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
