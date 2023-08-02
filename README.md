@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am a man of fixed and unbending principles, the first of which is to be flexible at all times.</i><br><i>– Everett Dirksen.</i><br></p>
+<p align="center"><br><i>The fox has many tricks. The hedgehog has but one. But that is the best of all.</i><br><i>– Erasmus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
