@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The less effort, the faster and more powerful you will be.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
