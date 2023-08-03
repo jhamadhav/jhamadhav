@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The fox has many tricks. The hedgehog has but one. But that is the best of all.</i><br><i>– Erasmus.</i><br></p>
+<p align="center"><br><i>The less effort, the faster and more powerful you will be.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
