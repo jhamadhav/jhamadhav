@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Avoid having your ego so close to your position that when your position falls, your ego goes with it.</i><br><i>– Colin Powell.</i><br></p>
+<p align="center"><br><i>When deeds and words are in accord, the whole world is transformed.</i><br><i>– Zhuang Zhou.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
