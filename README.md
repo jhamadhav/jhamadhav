@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whatever happens, take responsibility.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
