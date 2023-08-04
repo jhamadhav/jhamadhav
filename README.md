@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When deeds and words are in accord, the whole world is transformed.</i><br><i>– Zhuang Zhou.</i><br></p>
+<p align="center"><br><i>Wisdom has never made a bigot, but learning has.</i><br><i>– Josh Billings.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
