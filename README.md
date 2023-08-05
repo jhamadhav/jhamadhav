@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What you get by achieving your goals is not as important as what you become by achieving your goals.</i><br><i>– Zig Ziglar.</i><br></p>
+<p align="center"><br><i>Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.</i><br><i>– Diogenes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
