@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is in the nature of things that joy arises in a person free from remorse.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>What you get by achieving your goals is not as important as what you become by achieving your goals.</i><br><i>– Zig Ziglar.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
