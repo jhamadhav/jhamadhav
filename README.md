@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Once you choose hope, anything's possible.</i><br><i>– Christopher Reeve.</i><br></p>
+<p align="center"><br><i>I hear and I forget. I see and I remember. I do and I understand.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
