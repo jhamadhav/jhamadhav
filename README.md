@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.</i><br><i>– Diogenes.</i><br></p>
+<p align="center"><br><i>Before we acquire great power, we must acquire wisdom to use it well.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
