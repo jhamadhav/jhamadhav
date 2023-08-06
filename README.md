@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only true wisdom is in knowing you know nothing.</i><br><i>– Isocrates.</i><br></p>
+<p align="center"><br><i>Once you choose hope, anything's possible.</i><br><i>– Christopher Reeve.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
