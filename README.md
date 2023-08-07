@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do one thing every day that scares you.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Wisdom has never made a bigot, but learning has.</i><br><i>– Josh Billings.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
