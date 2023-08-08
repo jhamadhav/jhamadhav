@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You give before you get.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>If you want to go east, don't go west.</i><br><i>– Ramakrishna.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
