@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.</i><br><i>– George Santayana.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
