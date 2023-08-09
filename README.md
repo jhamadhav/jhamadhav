@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>The most complicated achievements of thought are possible without the assistance of consciousness.</i><br><i>– Sigmund Freud.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
