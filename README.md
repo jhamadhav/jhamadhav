@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.</i><br><i>– George Santayana.</i><br></p>
+<p align="center"><br><i>Those that know, do. Those that understand, teach.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
