@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom often times consists of knowing what to do next.</i><br><i>– Herbert Hoover.</i><br></p>
+<p align="center"><br><i>The way a team plays as a whole determines its success. You may have the greatest bunch of individual stars in the world, but if they don't play together, the club won't be worth a dime.</i><br><i>– Babe Ruth.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
