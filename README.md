@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Train up a fig tree in the way it should go, and when you are old sit under the shade of it.</i><br><i>– Charles Dickens.</i><br></p>
+<p align="center"><br><i>There surely is in human nature an inherent propensity to extract all the good out of all the evil.</i><br><i>– Benjamin Haydon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
