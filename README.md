@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Difficulties increase the nearer we get to the goal.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Train up a fig tree in the way it should go, and when you are old sit under the shade of it.</i><br><i>– Charles Dickens.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
