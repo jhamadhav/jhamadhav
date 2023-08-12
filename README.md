@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truth is not for all men, but only for those who seek it.</i><br><i>– Ayn Rand.</i><br></p>
+<p align="center"><br><i>Speak only endearing speech, speech that is welcomed. Speech, when it brings no evil to others, is a pleasant thing.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
