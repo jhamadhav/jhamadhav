@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Speak only endearing speech, speech that is welcomed. Speech, when it brings no evil to others, is a pleasant thing.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>You must do the things you think you cannot do.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
