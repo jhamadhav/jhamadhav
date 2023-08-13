@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never teach my pupils. I only attempt to provide the conditions in which they can learn.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Always seek out the seed of triumph in every adversity.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
