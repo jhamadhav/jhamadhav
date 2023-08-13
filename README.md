@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always seek out the seed of triumph in every adversity.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.</i><br><i>– Kathleen Norris.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
