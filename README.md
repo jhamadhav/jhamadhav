@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>If one way be better than another, that you may be sure is nature's way.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
