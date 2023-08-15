@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.</i><br><i>– Morris West.</i><br></p>
+<p align="center"><br><i>If you want to kill any idea in the world, get a committee working on it.</i><br><i>– Charles F. Kettering.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
