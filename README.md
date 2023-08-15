@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation.</i><br><i>– Paul Theroux.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
