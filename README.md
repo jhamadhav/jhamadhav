@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A day of worry is more exhausting than a day of work.</i><br><i>– John Lubbock.</i><br></p>
+<p align="center"><br><i>We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.</i><br><i>– Stephen Covey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
