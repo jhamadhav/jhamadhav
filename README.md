@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want to kill any idea in the world, get a committee working on it.</i><br><i>– Charles F. Kettering.</i><br></p>
+<p align="center"><br><i>You're not obligated to win. You're obligated to keep trying to do the best you can every day.</i><br><i>– Marian Wright Edelman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
