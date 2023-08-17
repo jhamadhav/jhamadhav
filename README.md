@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You teach best what you most need to learn.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.</i><br><i>– Robert Fulghum.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
