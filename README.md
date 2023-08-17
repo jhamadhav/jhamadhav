@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We make a living by what we get, but we make a life by what we give.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>To accomplish great things, we must dream as well as act.</i><br><i>– Anatole France.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
