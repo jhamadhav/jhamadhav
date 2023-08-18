@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If I were two-faced, would I be wearing this one?</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Programs must be written for people to read, and only incidentally for machines to execute.</i><br><i>– Hal Abelson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
