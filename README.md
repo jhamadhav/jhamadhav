@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
+<p align="center"><br><i>Joy is what happens to us when we allow ourselves to recognize how good things really are.</i><br><i>– Marianne Williamson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
