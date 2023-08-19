@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who angers you conquers you.</i><br><i>– Elizabeth Kenny.</i><br></p>
+<p align="center"><br><i>Ideas pull the trigger, but instinct loads the gun.</i><br><i>– Don Marquis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
