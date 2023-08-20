@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is easier to live through someone else than to become complete yourself.</i><br><i>– Betty Friedan.</i><br></p>
+<p align="center"><br><i>You can't choose up sides on a round world.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
