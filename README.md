@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't choose up sides on a round world.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>His lack of education is more than compensated for by his keenly developed moral bankruptcy.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
