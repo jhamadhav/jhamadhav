@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
