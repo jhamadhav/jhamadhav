@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man blames himself. The inferior man blames others.</i><br><i>– Don Shula.</i><br></p>
+<p align="center"><br><i>Love is composed of a single soul inhabiting two bodies.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
