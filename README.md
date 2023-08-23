@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He is no fool who gives what he cannot keep to gain what he cannot lose.</i><br><i>– Jim Elliot.</i><br></p>
+<p align="center"><br><i>Believe deep down in your heart that you're destined to do great things.</i><br><i>– Joe Paterno.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
