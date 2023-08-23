@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Believe deep down in your heart that you're destined to do great things.</i><br><i>– Joe Paterno.</i><br></p>
+<p align="center"><br><i>The superior man blames himself. The inferior man blames others.</i><br><i>– Don Shula.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
