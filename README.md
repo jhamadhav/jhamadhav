@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Myths which are believed in tend to become true.</i><br><i>– George Orwell.</i><br></p>
+<p align="center"><br><i>The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
