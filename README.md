@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Liberty, taking the word in its concrete sense, consists in the ability to choose.</i><br><i>– Simone Weil.</i><br></p>
+<p align="center"><br><i>No one can make you feel inferior without your consent.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
