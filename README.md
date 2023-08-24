@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No one can make you feel inferior without your consent.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Myths which are believed in tend to become true.</i><br><i>– George Orwell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
