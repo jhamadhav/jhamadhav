@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ideas pull the trigger, but instinct loads the gun.</i><br><i>– Don Marquis.</i><br></p>
+<p align="center"><br><i>The two most powerful warriors are patience and time.</i><br><i>– Leo Tolstoy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
