@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whenever something negative happens to you, there is a deep lesson concealed within it.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
