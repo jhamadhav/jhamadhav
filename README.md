@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reality leaves a lot to the imagination.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>Genuine sincerity opens people's hearts, while manipulation causes them to close.</i><br><i>– Daisaku Ikeda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
