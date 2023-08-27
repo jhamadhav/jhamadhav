@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One today is worth two tomorrows.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>Reality leaves a lot to the imagination.</i><br><i>– John Lennon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
