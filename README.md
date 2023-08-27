@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.</i><br><i>– William Saroyan.</i><br></p>
+<p align="center"><br><i>One today is worth two tomorrows.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
