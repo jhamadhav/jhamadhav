@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is composed of a single soul inhabiting two bodies.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>If there is such a thing as a good marriage, it is because it resembles friendship rather than love.</i><br><i>– Michel de Montaigne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
