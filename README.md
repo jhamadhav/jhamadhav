@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If there is such a thing as a good marriage, it is because it resembles friendship rather than love.</i><br><i>– Michel de Montaigne.</i><br></p>
+<p align="center"><br><i>It is not enough to have a good mind; the main thing is to use it well.</i><br><i>– René Descartes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
