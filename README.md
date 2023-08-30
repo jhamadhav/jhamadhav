@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One man practicing sportsmanship is far better than a hundred teaching it.</i><br><i>– Knute Rockne.</i><br></p>
+<p align="center"><br><i>It is the mark of an educated mind to be able to entertain a thought without accepting it.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
