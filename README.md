@@ -27,7 +27,11 @@
 
 ---
 <!-- QUOTE:START -->
+<p align="center"><br><i>If you owe the bank 
 <p align="center"><br><i>The meaning I picked, the one that changed my life: Overcome fear, behold wonder.</i><br><i>– Richard Bach.</i><br></p>
+00 that's your problem. If you owe the bank 
+<p align="center"><br><i>The meaning I picked, the one that changed my life: Overcome fear, behold wonder.</i><br><i>– Richard Bach.</i><br></p>
+00 million, that's the bank's problem.</i><br><i>– J. Paul Getty.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
