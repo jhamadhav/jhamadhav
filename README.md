@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time changes everything except something within us which is always surprised by change.</i><br><i>– Thomas Hardy.</i><br></p>
+<p align="center"><br><i>An appeaser is one who feeds a crocodile, hoping it will eat him last.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
