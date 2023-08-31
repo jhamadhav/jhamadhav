@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An appeaser is one who feeds a crocodile, hoping it will eat him last.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.</i><br><i>– Rollo May.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
