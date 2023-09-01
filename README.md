@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To want to be what one can be is purpose in life.</i><br><i>– Cynthia Ozick.</i><br></p>
+<p align="center"><br><i>We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly.</i><br><i>– Sam Keen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
