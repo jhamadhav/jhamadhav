@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.</i><br><i>– Vernon Cooper.</i><br></p>
+<p align="center"><br><i>The ladder of success is never crowded at the top.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
