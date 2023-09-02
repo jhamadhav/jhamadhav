@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is movement-we breathe, we eat, we walk, we move!</i><br><i>– John Pierrakos.</i><br></p>
+<p align="center"><br><i>Act as if what you do makes a difference. It does.</i><br><i>– William James.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
