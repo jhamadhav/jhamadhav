@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Perfection of means and confusion of ends seems to characterize our age.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Life is movement-we breathe, we eat, we walk, we move!</i><br><i>– John Pierrakos.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
