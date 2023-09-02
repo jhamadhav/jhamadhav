@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Act as if what you do makes a difference. It does.</i><br><i>– William James.</i><br></p>
+<p align="center"><br><i>A short saying often contains much wisdom.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
