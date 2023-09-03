@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The grand essentials of happiness are: something to do, something to love, and something to hope for.</i><br><i>– Alexander Chalmers.</i><br></p>
+<p align="center"><br><i>Friendship increases in visiting friends, but in visiting them seldom.</i><br><i>– Francis Bacon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
