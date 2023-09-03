@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A short saying often contains much wisdom.</i><br><i>– Sophocles.</i><br></p>
+<p align="center"><br><i>The grand essentials of happiness are: something to do, something to love, and something to hope for.</i><br><i>– Alexander Chalmers.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
