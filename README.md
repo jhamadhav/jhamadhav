@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not uncommon for people to spend their whole life waiting to start living.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
