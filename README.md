@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>No snowflake in an avalanche ever feels responsible.</i><br><i>– Voltaire.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
