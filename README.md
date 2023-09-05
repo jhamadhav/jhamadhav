@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No snowflake in an avalanche ever feels responsible.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>You need chaos in your soul to give birth to a dancing star.</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
