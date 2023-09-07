@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>That's the risk you take if you change: that people you've been involved with won't like the new you. But other people who do will come along.</i><br><i>– Lisa Alther.</i><br></p>
+<p align="center"><br><i>He who controls others may be powerful, but he who has mastered himself is mightier still.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
