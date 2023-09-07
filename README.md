@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.</i><br><i>– George Washington.</i><br></p>
+<p align="center"><br><i>Wisdom is always an overmatch for strength.</i><br><i>– Phil Jackson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
