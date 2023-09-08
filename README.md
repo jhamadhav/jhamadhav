@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.</i><br><i>– Jessamyn West.</i><br></p>
+<p align="center"><br><i>Pick battles big enough to matter, small enough to win.</i><br><i>– Jonathan Kozol.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
