@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man understands what is right; the inferior man understands what will sell.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
