@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To bring anything into your life, imagine that it's already there.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
