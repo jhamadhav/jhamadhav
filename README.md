@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fans don't boo nobodies.</i><br><i>– Reggie Jackson (basketball, born 1990).</i><br></p>
+<p align="center"><br><i>Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.</i><br><i>– Stewart Brand.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
