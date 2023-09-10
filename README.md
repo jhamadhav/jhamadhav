@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I can't believe that God put us on this earth to be ordinary.</i><br><i>– Lou Holtz.</i><br></p>
+<p align="center"><br><i>Fans don't boo nobodies.</i><br><i>– Reggie Jackson (basketball, born 1990).</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
