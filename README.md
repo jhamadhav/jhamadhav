@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be as you wish to seem.</i><br><i>– Socrates.</i><br></p>
+<p align="center"><br><i>The possibilities are numerous once we decide to act and not react.</i><br><i>– George Bernard Shaw.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
