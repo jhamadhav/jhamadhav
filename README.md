@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Know what's important and what isn't. Have the wisdom to know the right thing to do, the integrity to do it, the character to stand up to those who don't, and the courage to stop those who won't.</i><br><i>– Mark Goulston.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
