@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good thoughts are no better than good dreams, unless they be executed.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
