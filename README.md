@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Know what's important and what isn't. Have the wisdom to know the right thing to do, the integrity to do it, the character to stand up to those who don't, and the courage to stop those who won't.</i><br><i>– Mark Goulston.</i><br></p>
+<p align="center"><br><i>The most technologically efficient machine that man has ever invented is the book.</i><br><i>– Northrop Frye.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
