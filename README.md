@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Waste no more time arguing about what a good man should be. Be one.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>Coming together is a beginning; keeping together is progress; working together is success.</i><br><i>– Edward Everett Hale.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
