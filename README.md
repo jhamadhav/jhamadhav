@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Coming together is a beginning; keeping together is progress; working together is success.</i><br><i>– Edward Everett Hale.</i><br></p>
+<p align="center"><br><i>A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.</i><br><i>– Isaac Asimov.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
