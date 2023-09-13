@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.</i><br><i>– Isaac Asimov.</i><br></p>
+<p align="center"><br><i>Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
