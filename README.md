@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I will prepare and some day my chance will come.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Ethics change with technology.</i><br><i>– Larry Niven.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
