@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>It is not fair to ask of others what you are unwilling to do yourself.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
