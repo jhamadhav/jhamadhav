@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>Fear grows in darkness; if you think there's a bogeyman around, turn on the light.</i><br><i>– Dorothy Thompson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
