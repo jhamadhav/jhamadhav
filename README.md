@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.</i><br><i>– Akhenaten.</i><br></p>
+<p align="center"><br><i>The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger.</i><br><i>– Michelle Obama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
