@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.</i><br><i>– Muhammad Ali.</i><br></p>
+<p align="center"><br><i>The truest greatness lies in being kind, the truest wisdom in a happy mind.</i><br><i>– Ella Wheeler Wilcox.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
