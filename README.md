@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I look forward to a great future for America - a future in which our country will match its military strength with our moral restraint, its wealth with our wisdom, its power with our purpose.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Cleverness is not wisdom.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
