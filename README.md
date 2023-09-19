@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Cleverness is not wisdom.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life.</i><br><i>– Hermann Hesse.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
