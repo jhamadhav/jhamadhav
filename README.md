@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.</i><br><i>– Chanakya.</i><br></p>
+<p align="center"><br><i>I cannot make my days longer, so I strive to make them better.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
