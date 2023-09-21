@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology has to be invented or adopted.</i><br><i>– Jared Diamond.</i><br></p>
+<p align="center"><br><i>Things turn out best for those who make the best of the way things turn out.</i><br><i>– Jack Buck.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
