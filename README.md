@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.</i><br><i>– Edward Young.</i><br></p>
+<p align="center"><br><i>Technology has to be invented or adopted.</i><br><i>– Jared Diamond.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
