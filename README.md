@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The world is round and the place which may seem like the end may also be the beginning.</i><br><i>– Ivy Baker Priest.</i><br></p>
+<p align="center"><br><i>Everything you are against weakens you. Everything you are for empowers you.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
