@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To choose what is difficult all one's days, as if it were easy, that is faith.</i><br><i>– W. H. Auden.</i><br></p>
+<p align="center"><br><i>Delight in heedfulness! Guard well your thoughts!</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
