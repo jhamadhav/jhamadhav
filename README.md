@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.</i><br><i>– Alexis Carrel.</i><br></p>
+<p align="center"><br><i>We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.</i><br><i>– Henry Ward Beecher.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
