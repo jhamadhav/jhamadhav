@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The hours of folly are measured by the clock; but of wisdom, no clock can measure.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.</i><br><i>– Kathleen Norris.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
