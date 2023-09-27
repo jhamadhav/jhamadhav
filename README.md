@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.</i><br><i>– Kathleen Norris.</i><br></p>
+<p align="center"><br><i>If you do not change direction, you may end up where you are heading.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
