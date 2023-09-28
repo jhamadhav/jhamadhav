@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Important principles may, and must, be inflexible.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>The only real valuable thing is intuition.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
