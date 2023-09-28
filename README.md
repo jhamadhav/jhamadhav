@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'd rather regret the things that I have done than the things that I have not done.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>Perfection of means and confusion of ends seems to characterize our age.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
