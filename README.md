@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Perfection of means and confusion of ends seems to characterize our age.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>With pride, there are many curses. With humility, there come many blessings.</i><br><i>– Ezra Taft Benson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
