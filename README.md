@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We never understand how little we need in this world until we know the loss of it.</i><br><i>– J. M. Barrie.</i><br></p>
+<p align="center"><br><i>Tell me and I forget. Teach me and I remember. Involve me and I learn.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
