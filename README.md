@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>With pride, there are many curses. With humility, there come many blessings.</i><br><i>– Ezra Taft Benson.</i><br></p>
+<p align="center"><br><i>We never understand how little we need in this world until we know the loss of it.</i><br><i>– J. M. Barrie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
