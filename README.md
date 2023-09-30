@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life.</i><br><i>– Ravi Zacharias.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
