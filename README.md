@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not turn back when you are just at the goal.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>Trust only movement. Life happens at the level of events, not of words. Trust movement.</i><br><i>– Alfred Adler.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
