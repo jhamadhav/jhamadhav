@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is divided into the horrible and the miserable.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>The doors of wisdom are never shut.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
