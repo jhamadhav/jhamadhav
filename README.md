@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The doors of wisdom are never shut.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>The only real valuable thing is intuition.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
