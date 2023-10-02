@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time you enjoyed wasting was not wasted.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>Light tomorrow with today!</i><br><i>– Elizabeth Browning.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
