@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The sincere friends of this world are as ship lights in the stormiest of nights.</i><br><i>– Giotto.</i><br></p>
+<p align="center"><br><i>Time you enjoyed wasting was not wasted.</i><br><i>– John Lennon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
