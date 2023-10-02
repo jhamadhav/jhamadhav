@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only real valuable thing is intuition.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>The sincere friends of this world are as ship lights in the stormiest of nights.</i><br><i>– Giotto.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
