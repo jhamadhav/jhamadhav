@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are two kinds of failures: those who thought and never did, and those who did and never thought.</i><br><i>– Laurence J. Peter.</i><br></p>
+<p align="center"><br><i>To lead people walk behind them.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
