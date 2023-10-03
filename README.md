@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The function of wisdom is to discriminate between good and evil.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>There are two kinds of failures: those who thought and never did, and those who did and never thought.</i><br><i>– Laurence J. Peter.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
