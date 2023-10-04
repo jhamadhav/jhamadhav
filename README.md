@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Quick decisions are unsafe decisions.</i><br><i>– Sophocles.</i><br></p>
+<p align="center"><br><i>Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.</i><br><i>– John Ruskin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
