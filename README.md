@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.</i><br><i>– William Arthur Ward.</i><br></p>
+<p align="center"><br><i>Friendship multiplies the good of life and divides the evil.</i><br><i>– Baltasar Gracián.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
