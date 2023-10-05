@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The final proof of greatness lies in being able to endure criticism without resentment.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>If you only have a hammer, you tend to see every problem as a nail.</i><br><i>– Abraham Maslow.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
