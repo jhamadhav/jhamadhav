@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge is proud that it knows so much; wisdom is humble that it knows no more.</i><br><i>– William Cowper.</i><br></p>
+<p align="center"><br><i>The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.</i><br><i>– Reinhold Niebuhr.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
