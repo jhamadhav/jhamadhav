@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Problems are only opportunities with thorns on them.</i><br><i>– Hugh Miller.</i><br></p>
+<p align="center"><br><i>The ego is nothing other than the focus of conscious attention.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
