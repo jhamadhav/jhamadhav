@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The ego is nothing other than the focus of conscious attention.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education.</i><br><i>– Thomas Carlyle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
