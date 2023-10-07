@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The least movement is of importance to all nature. The entire ocean is affected by a pebble.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
