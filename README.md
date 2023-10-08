@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing in life is so exhilarating as to be shot at without result.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Until you make peace with who you are, you will never be content with what you have.</i><br><i>– Doris Mortman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
