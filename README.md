@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To dare is to lose ones footing momentarily. To not dare is to lose oneself.</i><br><i>– Søren Kierkegaard.</i><br></p>
+<p align="center"><br><i>Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.</i><br><i>– Sri Chinmoy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
