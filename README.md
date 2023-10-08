@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.</i><br><i>– Sri Chinmoy.</i><br></p>
+<p align="center"><br><i>The grand essentials of happiness are: something to do, something to love, and something to hope for.</i><br><i>– Alexander Chalmers.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
