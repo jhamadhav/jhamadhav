@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>And when the world is created, it is created in such a way that those eternal objects of God's loving wisdom become actualities - interacting with one another, relating to God in the finite realm.</i><br><i>– Rowan Williams.</i><br></p>
+<p align="center"><br><i>No yesterdays are ever wasted for those who give themselves to today.</i><br><i>– Brendan Behan.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
