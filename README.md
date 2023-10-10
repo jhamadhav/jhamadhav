@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>As we are liberated from our own fear, our presence automatically liberates others.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.</i><br><i>– Carlos Castaneda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
