@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is really simple, but we insist on making it complicated.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>To be fully alive, fully human, and completely awake is to be continually thrown out of the nest.</i><br><i>– Pema Chödrön.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
