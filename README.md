@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To acquire knowledge, one must study; but to acquire wisdom, one must observe.</i><br><i>– Marilyn vos Savant.</i><br></p>
+<p align="center"><br><i>Well done is better than well said.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
