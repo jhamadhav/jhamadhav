@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Well done is better than well said.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>One may say the eternal mystery of the world is its comprehensibility.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
