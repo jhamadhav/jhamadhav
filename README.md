@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>An organization, no matter how well designed, is only as good as the people who live and work in it.</i><br><i>– Dee Hock.</i><br></p>
+<p align="center"><br><i>To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
