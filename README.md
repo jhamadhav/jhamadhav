@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One may say the eternal mystery of the world is its comprehensibility.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>An organization, no matter how well designed, is only as good as the people who live and work in it.</i><br><i>– Dee Hock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
