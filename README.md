@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>It is impossible to escape the impression that people commonly use false standards of measurement — that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life.</i><br><i>– Sigmund Freud.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
