@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
