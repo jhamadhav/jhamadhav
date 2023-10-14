@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you love someone, set them free. If they come back, they're yours; if they don't, they never were.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
