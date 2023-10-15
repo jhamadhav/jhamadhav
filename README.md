@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To conquer fear is the beginning of wisdom.</i><br><i>– Bertrand Russell.</i><br></p>
+<p align="center"><br><i>Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
