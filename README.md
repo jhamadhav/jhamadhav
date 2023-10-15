@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Action is the foundational key to all success.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>To conquer fear is the beginning of wisdom.</i><br><i>– Bertrand Russell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
