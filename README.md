@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Real magic in relationships means an absence of judgement of others.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
