@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nobody made a greater mistake than he who did nothing because he could do only a little.</i><br><i>– Edmund Burke.</i><br></p>
+<p align="center"><br><i>As an organizer I start from where the world is, as it is, not as I would like it to be.</i><br><i>– Saul Alinsky.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
