@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If we did the things we are capable of, we would astound ourselves.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>It is not fair to ask of others what you are unwilling to do yourself.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
