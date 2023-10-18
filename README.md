@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most formidable weapon against errors of every kind is reason.</i><br><i>– Thomas Paine.</i><br></p>
+<p align="center"><br><i>I believe in one thing only, the power of human will.</i><br><i>– Joseph Stalin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
