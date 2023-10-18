@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Try not to become a man of success, but rather try to become a man of value.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Efficiency is doing things right; effectiveness is doing the right things.</i><br><i>– Peter Drucker.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
