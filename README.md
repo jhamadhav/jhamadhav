@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do one thing every day that scares you.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Don't cry because it's over. Smile because it happened.</i><br><i>– Dr. Seuss.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
