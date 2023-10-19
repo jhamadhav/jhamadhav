@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I believe in one thing only, the power of human will.</i><br><i>– Joseph Stalin.</i><br></p>
+<p align="center"><br><i>A ruffled mind makes a restless pillow.</i><br><i>– Charlotte Brontë.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
