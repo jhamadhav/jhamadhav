@@ -27,7 +27,11 @@
 
 ---
 <!-- QUOTE:START -->
+<p align="center"><br><i>If you owe the bank 
 <p align="center"><br><i>A ruffled mind makes a restless pillow.</i><br><i>– Charlotte Brontë.</i><br></p>
+00 that's your problem. If you owe the bank 
+<p align="center"><br><i>A ruffled mind makes a restless pillow.</i><br><i>– Charlotte Brontë.</i><br></p>
+00 million, that's the bank's problem.</i><br><i>– J. Paul Getty.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
