@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Quick decisions are unsafe decisions.</i><br><i>– Sophocles.</i><br></p>
+<p align="center"><br><i>Some people are born on third base and go through life thinking they hit a triple.</i><br><i>– Barry Switzer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
