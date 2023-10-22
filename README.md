@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people.</i><br><i>– Mary Kay Ash.</i><br></p>
+<p align="center"><br><i>Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
