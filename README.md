@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man is great by deeds, not by birth.</i><br><i>– Chanakya.</i><br></p>
+<p align="center"><br><i>Quick decisions are unsafe decisions.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
