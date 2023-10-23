@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct.</i><br><i>– Elizabeth Kapu'uwailani Lindsey.</i><br></p>
+<p align="center"><br><i>We are made wise not by the recollection of our past, but by the responsibility for our future.</i><br><i>– Bernard Shaw.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
