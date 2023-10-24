@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise men talk because they have something to say; fools, because they have to say something.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>A single rose can be my garden... a single friend, my world.</i><br><i>– Leo Buscaglia.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
