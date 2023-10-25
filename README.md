@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Better to have loved and lost, than to have never loved at all.</i><br><i>– Augustine of Hippo.</i><br></p>
+<p align="center"><br><i>Do not go where the path may lead, go instead where there is no path and leave a trail.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
