@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>People don't notice whether it's winter or summer when they're happy.</i><br><i>– Anton Chekhov.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
