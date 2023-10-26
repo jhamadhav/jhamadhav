@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom begins at the end.</i><br><i>– Daniel Webster.</i><br></p>
+<p align="center"><br><i>Difficulties increase the nearer we get to the goal.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
