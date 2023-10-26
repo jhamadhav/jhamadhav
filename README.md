@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not go where the path may lead, go instead where there is no path and leave a trail.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Wisdom begins at the end.</i><br><i>– Daniel Webster.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
