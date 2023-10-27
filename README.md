@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.</i><br><i>– Dale Carnegie.</i><br></p>
+<p align="center"><br><i>You can observe a lot just by watching.</i><br><i>– Yogi Berra.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
