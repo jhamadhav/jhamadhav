@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We don't stop playing because we grow old; we grow old because we stop playing.</i><br><i>– Bernard Shaw.</i><br></p>
+<p align="center"><br><i>It is the supreme art of the teacher to awaken joy in creative expression and knowledge.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
