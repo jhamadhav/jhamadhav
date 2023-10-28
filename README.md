@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>But at any rate, the point is that God is what nobody admits to being, and everybody really is.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>If opportunity doesn't knock, build a door.</i><br><i>– Milton Berle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
