@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody.</i><br><i>– Herbert Bayard Swope.</i><br></p>
+<p align="center"><br><i>Important principles may, and must, be inflexible.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
