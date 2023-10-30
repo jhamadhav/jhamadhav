@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.</i><br><i>– Zhuang Zhou.</i><br></p>
+<p align="center"><br><i>The noblest worship is to make yourself as good and as just as you can.</i><br><i>– Isocrates.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
