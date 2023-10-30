@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If a man going down into a river, swollen and swiftly flowing, is carried away by the current — how can he help others across? – The Buddha</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
