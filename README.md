@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>No man was ever wise by chance.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
