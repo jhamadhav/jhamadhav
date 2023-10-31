@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The free man is he who does not fear to go to the end of his thought.</i><br><i>– Léon Blum.</i><br></p>
+<p align="center"><br><i>If opportunity doesn't knock, build a door.</i><br><i>– Milton Berle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
