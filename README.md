@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Important principles may, and must, be inflexible.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>The free man is he who does not fear to go to the end of his thought.</i><br><i>– Léon Blum.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
