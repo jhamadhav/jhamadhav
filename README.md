@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greater our knowledge increases the more our ignorance unfolds.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Impossibilities are merely things which we have not yet learned.</i><br><i>– Charles W. Chesnutt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
