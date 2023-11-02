@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Men are disturbed not by things, but by the view which they take of them.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>You won't skid if you stay in a rut.</i><br><i>– Kin Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
