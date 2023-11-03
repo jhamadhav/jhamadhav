@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology presumes there's just one right way to do things and there never is.</i><br><i>– Robert M. Pirsig.</i><br></p>
+<p align="center"><br><i>Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
