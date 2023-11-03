@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.</i><br><i>– Ovid.</i><br></p>
+<p align="center"><br><i>The amount of happiness that you have depends on the amount of freedom you have in your heart.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
