@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You have to do your own growing no matter how tall your grandfather was.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>We are masters of the unsaid words, but slaves of those we let slip out.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
