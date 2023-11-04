@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is like riding a bicycle. To keep your balance you must keep moving.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Music in the soul can be heard by the universe.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
