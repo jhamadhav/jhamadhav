@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you do not change direction, you may end up where you are heading.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Freedom is the right to live as we wish.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
