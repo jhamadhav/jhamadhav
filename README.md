@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be as you wish to seem.</i><br><i>– Socrates.</i><br></p>
+<p align="center"><br><i>We all live with the objective of being happy; our lives are all different and yet the same.</i><br><i>– Anne Frank.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
