@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The attempt to combine wisdom and power has only rarely been successful and then only for a short while.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Be as you wish to seem.</i><br><i>– Socrates.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
