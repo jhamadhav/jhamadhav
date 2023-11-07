@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.</i><br><i>– Henry Reed.</i><br></p>
+<p align="center"><br><i>The attempt to combine wisdom and power has only rarely been successful and then only for a short while.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
