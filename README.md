@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.</i><br><i>– Henry Ward Beecher.</i><br></p>
+<p align="center"><br><i>Everything that exists is in a manner the seed of that which will be.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
