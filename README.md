@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We all live with the objective of being happy; our lives are all different and yet the same.</i><br><i>– Anne Frank.</i><br></p>
+<p align="center"><br><i>Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.</i><br><i>– Edith Wharton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
