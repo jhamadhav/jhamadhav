@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything that exists is in a manner the seed of that which will be.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>The ultimate promise of technology is to make us master of a world that we command by the push of a button.</i><br><i>– Volker Grassmuck.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
