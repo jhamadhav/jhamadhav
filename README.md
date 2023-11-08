@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.</i><br><i>– Edith Wharton.</i><br></p>
+<p align="center"><br><i>We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.</i><br><i>– Henry Ward Beecher.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
