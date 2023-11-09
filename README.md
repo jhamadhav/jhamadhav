@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship may, and often does, grow into love, but love never subsides into friendship.</i><br><i>– Lord Byron.</i><br></p>
+<p align="center"><br><i>While we stop to think, we often miss our opportunity.</i><br><i>– Publilius Syrus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
