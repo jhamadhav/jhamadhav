@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When deeds and words are in accord, the whole world is transformed.</i><br><i>– Zhuang Zhou.</i><br></p>
+<p align="center"><br><i>When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.</i><br><i>– W. Clement Stone.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
