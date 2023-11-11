@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let there be no purpose in friendship save the deepening of the spirit.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
