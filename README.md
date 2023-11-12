@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No day in which you learn something is a complete loss.</i><br><i>– David Eddings.</i><br></p>
+<p align="center"><br><i>Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have.</i><br><i>– Ernie Banks.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
