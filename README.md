@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have.</i><br><i>– Ernie Banks.</i><br></p>
+<p align="center"><br><i>If you find yourself in a hole, the first thing to do is stop digging.</i><br><i>– Will Rogers.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
