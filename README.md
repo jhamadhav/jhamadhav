@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You and I are all as much continuous with the physical universe as a wave is continuous with the ocean.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Action is eloquence.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
