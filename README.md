@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is impossible to experience one's death objectively and still carry a tune.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>We must become the change we want to see.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
