@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love has no age, no limit; and no death.</i><br><i>– John Galsworthy.</i><br></p>
+<p align="center"><br><i>God has given you one face, and you make yourself another.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
