@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are no strangers here; Only friends you haven't yet met.</i><br><i>– William Butler Yeats.</i><br></p>
+<p align="center"><br><i>I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.</i><br><i>– Colette.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
