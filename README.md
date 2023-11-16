@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest gift of life is friendship, and I have received it.</i><br><i>– Hubert Humphrey.</i><br></p>
+<p align="center"><br><i>A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments.</i><br><i>– Ezra Stiles.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
