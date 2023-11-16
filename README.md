@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.</i><br><i>– Colette.</i><br></p>
+<p align="center"><br><i>If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.</i><br><i>– Vince Lombardi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
