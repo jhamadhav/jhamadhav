@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments.</i><br><i>– Ezra Stiles.</i><br></p>
+<p align="center"><br><i>Start with what is right rather than what is acceptable.</i><br><i>– Franz Kafka.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
