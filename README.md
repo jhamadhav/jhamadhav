@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Start with what is right rather than what is acceptable.</i><br><i>– Franz Kafka.</i><br></p>
+<p align="center"><br><i>It's supposed to be automatic, but actually you have to push this button.</i><br><i>– John Brunner.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
