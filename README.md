@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life has no blessing like a prudent friend.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>The biggest room in the world is room for improvement.</i><br><i>– Helmut Schmidt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
