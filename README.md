@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The art challenges the technology, and the technology inspires the art.</i><br><i>– John Lasseter.</i><br></p>
+<p align="center"><br><i>When in doubt, tell the truth.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
