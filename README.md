@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is a progress, and not a station.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Be content with your lot; one cannot be first in everything.</i><br><i>– Aesop.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
