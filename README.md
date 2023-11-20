@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Miracles come in moments. Be ready and willing.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Life is a progress, and not a station.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
