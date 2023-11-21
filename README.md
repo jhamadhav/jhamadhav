@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be content with your lot; one cannot be first in everything.</i><br><i>– Aesop.</i><br></p>
+<p align="center"><br><i>Successful people ask better questions, and as a result, they get better answers.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
