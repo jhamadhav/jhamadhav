@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Successful people ask better questions, and as a result, they get better answers.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Price is what you pay. Value is what you get.</i><br><i>– Warren Buffett.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
