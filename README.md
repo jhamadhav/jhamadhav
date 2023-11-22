@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The bird of paradise alights only upon the hand that does not grasp.</i><br><i>– John Berry.</i><br></p>
+<p align="center"><br><i>By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
