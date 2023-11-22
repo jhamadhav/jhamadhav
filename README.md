@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>The bird of paradise alights only upon the hand that does not grasp.</i><br><i>– John Berry.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
