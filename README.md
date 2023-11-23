@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can always count on Americans to do the right thing - after they've tried everything else.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both.</i><br><i>– Fawn M. Brodie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
