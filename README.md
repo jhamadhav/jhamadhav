@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody.</i><br><i>– Herbert Bayard Swope.</i><br></p>
+<p align="center"><br><i>You can always count on Americans to do the right thing - after they've tried everything else.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
