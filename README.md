@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both.</i><br><i>– Fawn M. Brodie.</i><br></p>
+<p align="center"><br><i>Nature is a mutable cloud which is always and never the same.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
