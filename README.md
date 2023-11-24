@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>He who conquers others is strong; He who conquers himself is mighty.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
