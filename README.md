@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who conquers others is strong; He who conquers himself is mighty.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.</i><br><i>– Frank Abagnale.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
