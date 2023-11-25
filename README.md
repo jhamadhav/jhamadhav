@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.</i><br><i>– Frank Abagnale.</i><br></p>
+<p align="center"><br><i>If we look at the world with a love of life, the world will reveal its beauty to us.</i><br><i>– Daisaku Ikeda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
