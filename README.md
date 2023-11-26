@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Meaning is not what you start with but what you end up with.</i><br><i>– Peter Elbow.</i><br></p>
+<p align="center"><br><i>The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
