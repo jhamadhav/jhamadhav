@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you smile when no one else is around, you really mean it.</i><br><i>– Andy Rooney.</i><br></p>
+<p align="center"><br><i>Speak low, if you speak love.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
