@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>If you smile when no one else is around, you really mean it.</i><br><i>– Andy Rooney.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
