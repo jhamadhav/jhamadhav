@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.</i><br><i>– Satchel Paige.</i><br></p>
+<p align="center"><br><i>To find a man's true character, play golf with him.</i><br><i>– P. G. Wodehouse.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
