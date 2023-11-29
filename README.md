@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To find a man's true character, play golf with him.</i><br><i>– P. G. Wodehouse.</i><br></p>
+<p align="center"><br><i>To listen well is as powerful a means of communication and influence as to talk well.</i><br><i>– John Marshall.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
