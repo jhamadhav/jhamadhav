@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't put a limit on anything. The more you dream, the farther you get.</i><br><i>– Michael Phelps.</i><br></p>
+<p align="center"><br><i>He has no enemies, but is intensely disliked by his friends.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
