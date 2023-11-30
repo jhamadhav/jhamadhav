@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friendship founded on business is better than a business founded on friendship.</i><br><i>– John Locke.</i><br></p>
+<p align="center"><br><i>You can't put a limit on anything. The more you dream, the farther you get.</i><br><i>– Michael Phelps.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
