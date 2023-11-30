@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The shoe that fits one person pinches another; there is no recipe for living that suits all cases.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>Technology is the campfire around which we tell our stories.</i><br><i>– Laurie Anderson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
