@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology is the campfire around which we tell our stories.</i><br><i>– Laurie Anderson.</i><br></p>
+<p align="center"><br><i>Don't turn away from possible futures before you're certain you don't have anything to learn from them.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
