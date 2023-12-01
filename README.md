@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't turn away from possible futures before you're certain you don't have anything to learn from them.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Opportunity often comes disguised in the form of misfortune, or temporary defeat.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
