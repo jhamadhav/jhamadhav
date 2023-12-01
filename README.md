@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our character is what we do when we think no one is looking.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
+<p align="center"><br><i>Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
