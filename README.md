@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't compromise yourself. You are all you've got.</i><br><i>– Janis Joplin.</i><br></p>
+<p align="center"><br><i>Gratitude is riches. Complaint is poverty.</i><br><i>– Doris Day.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
