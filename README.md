@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.</i><br><i>– Simone de Beauvoir.</i><br></p>
+<p align="center"><br><i>Don't compromise yourself. You are all you've got.</i><br><i>– Janis Joplin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
