@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The great myth of our times is that technology is communication.</i><br><i>– Libby Larsen.</i><br></p>
+<p align="center"><br><i>We make a living by what we get, but we make a life by what we give.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
