@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We make a living by what we get, but we make a life by what we give.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.</i><br><i>– Anaïs Nin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
