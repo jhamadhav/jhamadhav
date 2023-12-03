@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We could never learn to be brave and patient if there were only joy in the world.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>The great myth of our times is that technology is communication.</i><br><i>– Libby Larsen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
