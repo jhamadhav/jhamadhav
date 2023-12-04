@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Obstacles are those frightful things you see when you take your eyes off your goal.</i><br><i>– Henry Ford.</i><br></p>
+<p align="center"><br><i>I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be.</i><br><i>– Ken Venturi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
