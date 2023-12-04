@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>Life is a travelling to the edge of knowledge, then a leap taken.</i><br><i>– Laurence J. Peter.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
