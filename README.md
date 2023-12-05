@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To conquer fear is the beginning of wisdom.</i><br><i>– Bertrand Russell.</i><br></p>
+<p align="center"><br><i>The friendship that can cease has never been real.</i><br><i>– Jerome.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
