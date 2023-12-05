@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
+<p align="center"><br><i>To conquer fear is the beginning of wisdom.</i><br><i>– Bertrand Russell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
