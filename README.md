@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be.</i><br><i>– Ken Venturi.</i><br></p>
+<p align="center"><br><i>Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
