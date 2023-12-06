@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not wait for leaders; do it alone, person to person.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>Nobody made a greater mistake than he who did nothing because he could do only a little.</i><br><i>– Edmund Burke.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
