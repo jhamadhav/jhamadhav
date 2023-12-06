@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The path to success is to take massive, determined action.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Do not wait for leaders; do it alone, person to person.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
