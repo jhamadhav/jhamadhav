@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If one does not know to which port is sailing, no wind is favorable.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>But at any rate, the point is that God is what nobody admits to being, and everybody really is.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
