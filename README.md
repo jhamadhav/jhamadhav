@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest remedy for anger is delay.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Discipline is the bridge between goals and accomplishment.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
