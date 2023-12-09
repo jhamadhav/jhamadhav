@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship increases in visiting friends, but in visiting them seldom.</i><br><i>– Francis Bacon.</i><br></p>
+<p align="center"><br><i>The greatest remedy for anger is delay.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
