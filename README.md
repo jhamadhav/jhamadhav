@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>What lies behind us and what lies before us are small matters compared to what lies within us.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
