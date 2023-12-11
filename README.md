@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To know oneself is to study oneself in action with another person.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>Pick battles big enough to matter, small enough to win.</i><br><i>– Jonathan Kozol.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
