@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What lies behind us and what lies before us are small matters compared to what lies within us.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
+<p align="center"><br><i>A friend in power is a friend lost.</i><br><i>– Henry Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
