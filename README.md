@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To accomplish great things, we must not only act, but also dream; not only plan, but also believe.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>Happiness is found in doing, not merely possessing.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
