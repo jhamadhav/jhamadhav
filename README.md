@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others?</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>No valid plans for the future can be made by those who have no capacity for living now.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
