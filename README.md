@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is oftentimes nearer when we stoop than when we soar.</i><br><i>– William Wordsworth.</i><br></p>
+<p align="center"><br><i>The longer we dwell on our misfortunes, the greater is their power to harm us.</i><br><i>– Voltaire.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
