@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday's home runs don't win today's games.</i><br><i>– Babe Ruth.</i><br></p>
+<p align="center"><br><i>Wisdom is oftentimes nearer when we stoop than when we soar.</i><br><i>– William Wordsworth.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
