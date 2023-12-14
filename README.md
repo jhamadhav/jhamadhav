@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Conditions fall apart. Persist with diligence.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Living at risk is jumping off the cliff and building your wings on the way down.</i><br><i>– Ray Bradbury.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
