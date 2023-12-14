@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Living at risk is jumping off the cliff and building your wings on the way down.</i><br><i>– Ray Bradbury.</i><br></p>
+<p align="center"><br><i>There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.</i><br><i>– Alfred Korzybski.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
