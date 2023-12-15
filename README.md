@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ideas are the beginning points of all fortunes.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Change is the law of life. And those who look only to the past or present are certain to miss the future.</i><br><i>– John F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
