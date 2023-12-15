@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life has no blessing like a prudent friend.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>Ideas are the beginning points of all fortunes.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
