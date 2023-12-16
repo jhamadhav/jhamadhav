@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.</i><br><i>– Orson Welles.</i><br></p>
+<p align="center"><br><i>A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
