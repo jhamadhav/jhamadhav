@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.</i><br><i>– Denis Waitley.</i><br></p>
+<p align="center"><br><i>Some people are born on third base and go through life thinking they hit a triple.</i><br><i>– Barry Switzer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
