@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
