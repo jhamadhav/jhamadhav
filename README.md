@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whoever is happy will make others happy, too.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
