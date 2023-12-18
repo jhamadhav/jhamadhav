@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.</i><br><i>– Kurt Vonnegut.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
