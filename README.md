@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Chaos and Order are not enemies, only opposites.</i><br><i>– Richard Garriott.</i><br></p>
+<p align="center"><br><i>To fly, we have to have resistance.</i><br><i>– Maya Lin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
