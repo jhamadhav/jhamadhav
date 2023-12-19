@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your big opportunity may be right where you are now.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Never interrupt someone doing what you said couldn't be done.</i><br><i>– Amelia Earhart.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
