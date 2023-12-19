@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Your big opportunity may be right where you are now.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
