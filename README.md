@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The energy of the mind is the essence of life.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>It is the province of knowledge to speak, and it is the privilege of wisdom to listen.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
