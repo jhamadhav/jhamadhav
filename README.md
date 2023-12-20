@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never interrupt someone doing what you said couldn't be done.</i><br><i>– Amelia Earhart.</i><br></p>
+<p align="center"><br><i>The superior man understands what is right; the inferior man understands what will sell.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
