@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>However rare true love may be, it is less so than true friendship.</i><br><i>– François de La Rochefoucauld.</i><br></p>
+<p align="center"><br><i>Don't smother each other. No one can grow in the shade.</i><br><i>– Leo Buscaglia.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
