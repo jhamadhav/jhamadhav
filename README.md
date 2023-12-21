@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't smother each other. No one can grow in the shade.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>Wisdom is the power to put our time and our knowledge to the proper use.</i><br><i>– Thomas J. Watson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
