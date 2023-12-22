@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>I'm not afraid of storms, for I'm learning how to sail my ship.</i><br><i>– Louisa May Alcott.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
