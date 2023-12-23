@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'm not afraid of storms, for I'm learning how to sail my ship.</i><br><i>– Louisa May Alcott.</i><br></p>
+<p align="center"><br><i>Wise men talk because they have something to say; fools, because they have to say something.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
