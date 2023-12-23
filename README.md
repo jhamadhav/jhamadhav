@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Action is the foundational key to all success.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>The simplest things are often the truest.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
