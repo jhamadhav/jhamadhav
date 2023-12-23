@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise men talk because they have something to say; fools, because they have to say something.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>The only time to buy these is on a day with no 'y' in it.</i><br><i>– Warren Buffett.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
