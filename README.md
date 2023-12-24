@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The simplest things are often the truest.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>When you are content to be simply yourself and don't compare or compete, everybody will respect you.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
