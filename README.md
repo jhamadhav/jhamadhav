@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whatever we expect with confidence becomes our own self-fulfilling prophecy.</i><br><i>– Brian Tracy.</i><br></p>
+<p align="center"><br><i>But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
