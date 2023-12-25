@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who knows others is wise. He who knows himself is enlightened.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Action is eloquence.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
