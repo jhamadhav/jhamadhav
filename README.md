@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friends are the siblings God never gave us.</i><br><i>– Mencius.</i><br></p>
+<p align="center"><br><i>He who knows others is wise. He who knows himself is enlightened.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
