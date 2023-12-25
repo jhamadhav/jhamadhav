@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Friends are the siblings God never gave us.</i><br><i>– Mencius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
