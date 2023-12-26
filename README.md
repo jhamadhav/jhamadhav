@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One should not hurt others if one loves oneself.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.</i><br><i>– G. K. Chesterton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
