@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness can exist only in acceptance.</i><br><i>– George Orwell.</i><br></p>
+<p align="center"><br><i>You have to believe in yourself.</i><br><i>– Sun Tzu.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
