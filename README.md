@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You have to believe in yourself.</i><br><i>– Sun Tzu.</i><br></p>
+<p align="center"><br><i>We are what we repeatedly do. Excellence, then, is not an act, but a habit.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
