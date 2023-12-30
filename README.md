@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All I required to be happy was friendship and people I could admire.</i><br><i>– Christian Dior.</i><br></p>
+<p align="center"><br><i>Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.</i><br><i>– Horace.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
