@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be tested is good. The challenged life may be the best therapist.</i><br><i>– Gail Sheehy.</i><br></p>
+<p align="center"><br><i>All I required to be happy was friendship and people I could admire.</i><br><i>– Christian Dior.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
