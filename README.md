@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.</i><br><i>– Horace.</i><br></p>
+<p align="center"><br><i>By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
