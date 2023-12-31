@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The secret of success is constancy to purpose.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.</i><br><i>– Reinhold Niebuhr.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
