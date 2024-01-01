@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The differences between friends cannot but reinforce their friendship.</i><br><i>– Mao Zedong.</i><br></p>
+<p align="center"><br><i>Start where you are. Use what you have. Do what you can.</i><br><i>– Arthur Ashe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
