@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What is a weed? A plant whose virtues have not yet been discovered.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Gratitude is riches. Complaint is poverty.</i><br><i>– Doris Day.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
