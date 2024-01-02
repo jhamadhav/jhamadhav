@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gratitude is riches. Complaint is poverty.</i><br><i>– Doris Day.</i><br></p>
+<p align="center"><br><i>Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.</i><br><i>– Woodrow Wilson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
