@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.</i><br><i>– Woodrow Wilson.</i><br></p>
+<p align="center"><br><i>True friendship is like sound health; the value of it is seldom known until it is lost.</i><br><i>– Charles Caleb Colton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
