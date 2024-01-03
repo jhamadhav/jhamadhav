@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One should not hurt others if one loves oneself.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Technology… the knack of so arranging the world that we don't have to experience it.</i><br><i>– Max Frisch.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
