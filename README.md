@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>True friendship is like sound health; the value of it is seldom known until it is lost.</i><br><i>– Charles Caleb Colton.</i><br></p>
+<p align="center"><br><i>One should not hurt others if one loves oneself.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
