@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Better be ignorant of a matter than half know it.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>All serious daring starts from within.</i><br><i>– Harriet Beecher Stowe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
