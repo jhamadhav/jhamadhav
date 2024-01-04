@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Write your plans in pencil and give God the eraser.</i><br><i>– Paulo Coelho.</i><br></p>
+<p align="center"><br><i>Always bear in mind that your own resolution to succeed is more important than any one thing.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
