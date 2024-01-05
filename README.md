@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>The supreme art of war is to subdue the enemy without fighting.</i><br><i>– Sun Tzu.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
