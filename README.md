@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I believe that every person is born with talent.</i><br><i>– Maya Angelou.</i><br></p>
+<p align="center"><br><i>Friends show their love in times of trouble, not in happiness.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
