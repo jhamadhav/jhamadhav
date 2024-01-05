@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friends show their love in times of trouble, not in happiness.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
