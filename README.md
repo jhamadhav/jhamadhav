@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The supreme art of war is to subdue the enemy without fighting.</i><br><i>– Sun Tzu.</i><br></p>
+<p align="center"><br><i>It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.</i><br><i>– Edward de Bono.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
