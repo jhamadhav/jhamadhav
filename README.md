@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nobody will believe in you unless you believe in yourself.</i><br><i>– Liberace.</i><br></p>
+<p align="center"><br><i>What the caterpillar calls the end of the world, the master calls a butterfly.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
