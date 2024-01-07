@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Russia is a riddle wrapped in a mystery inside an enigma.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.</i><br><i>– Joseph Addison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
