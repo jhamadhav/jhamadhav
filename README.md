@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Having nothing, nothing can he lose.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
