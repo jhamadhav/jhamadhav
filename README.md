@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The less effort, the faster and more powerful you will be.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>Having nothing, nothing can he lose.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
