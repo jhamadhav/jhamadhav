@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you focus on results, you will never change. If you focus on change, you will get results.</i><br><i>– Jack Dixon.</i><br></p>
+<p align="center"><br><i>While we stop to think, we often miss our opportunity.</i><br><i>– Publilius Syrus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
