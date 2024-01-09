@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A brand for a company is like a reputation for a person. You earn reputation by trying to do hard things well.</i><br><i>– Jeff Bezos.</i><br></p>
+<p align="center"><br><i>If you focus on results, you will never change. If you focus on change, you will get results.</i><br><i>– Jack Dixon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
