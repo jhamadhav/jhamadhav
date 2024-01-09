@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.</i><br><i>– Dhammapada.</i><br></p>
+<p align="center"><br><i>Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.</i><br><i>– Whoopi Goldberg.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
