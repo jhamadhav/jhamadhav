@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>While we stop to think, we often miss our opportunity.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.</i><br><i>– Dhammapada.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
