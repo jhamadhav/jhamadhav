@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.</i><br><i>– Whoopi Goldberg.</i><br></p>
+<p align="center"><br><i>Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
