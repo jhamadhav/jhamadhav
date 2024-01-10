@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>You can only grow if you're willing to feel awkward and uncomfortable when you try something new.</i><br><i>– Brian Tracy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
