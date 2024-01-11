@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The future belongs to those who believe in the beauty of their dreams.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Nothing great was ever achieved without enthusiasm.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
