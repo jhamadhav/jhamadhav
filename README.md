@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's just a job. Grass grows, birds fly, waves pound the sand. I beat people up.</i><br><i>– Muhammad Ali.</i><br></p>
+<p align="center"><br><i>Most powerful is he who has himself in his own power.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
