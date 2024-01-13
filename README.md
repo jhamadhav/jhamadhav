@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.</i><br><i>– Julie Morgenstern.</i><br></p>
+<p align="center"><br><i>The root of suffering is attachment.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
