@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't choose up sides on a round world.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>It's only when the tide goes out that you discover who's been swimming naked.</i><br><i>– Warren Buffett.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
