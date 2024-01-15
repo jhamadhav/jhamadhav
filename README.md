@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What lies behind us and what lies before us are tiny matters compared to what lies within us.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>We don't stop playing because we grow old; we grow old because we stop playing.</i><br><i>– Bernard Shaw.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
