@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ignorance and bungling with love are better than wisdom and skill without.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>Without some goals and some efforts to reach it, no man can live.</i><br><i>– John Dewey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
