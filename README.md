@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Get busy living or get busy dying.</i><br><i>– Stephen King.</i><br></p>
+<p align="center"><br><i>Ignorance and bungling with love are better than wisdom and skill without.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
