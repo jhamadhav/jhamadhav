@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Without some goals and some efforts to reach it, no man can live.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>Friends are those rare people who ask how we are and then wait to hear the answer.</i><br><i>– Ed Cunningham.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
