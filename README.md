@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.</i><br><i>– Amy Bloom.</i><br></p>
+<p align="center"><br><i>You can do it if you believe you can!</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
