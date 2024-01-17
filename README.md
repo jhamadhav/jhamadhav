@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can do it if you believe you can!</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>You give before you get.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
