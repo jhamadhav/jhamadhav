@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Adopt the pace of nature: her secret is patience.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>He who controls others may be powerful, but he who has mastered himself is mightier still.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
