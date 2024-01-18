@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The day of fortune is like a harvest day, we must be busy when the corn is ripe.</i><br><i>– Torquato Tasso.</i><br></p>
+<p align="center"><br><i>Love is the only force capable of transforming an enemy into a friend.</i><br><i>– Martin Luther King Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
