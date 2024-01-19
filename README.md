@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let us sacrifice our today so that our children can have a better tomorrow.</i><br><i>– A. P. J. Abdul Kalam.</i><br></p>
+<p align="center"><br><i>The pine stays green in winter... wisdom in hardship.</i><br><i>– Norman Douglas.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
