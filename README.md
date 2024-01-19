@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present.</i><br><i>– Joan Rivers.</i><br></p>
+<p align="center"><br><i>Let us sacrifice our today so that our children can have a better tomorrow.</i><br><i>– A. P. J. Abdul Kalam.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
