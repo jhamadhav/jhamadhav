@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The pine stays green in winter... wisdom in hardship.</i><br><i>– Norman Douglas.</i><br></p>
+<p align="center"><br><i>There are three faithful friends - an old wife, an old dog, and ready money.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
