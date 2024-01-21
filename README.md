@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Interestingly, according to modern astronomers, space is finite. This is a very comforting thought-- particularly for people who can never remember where they have left things.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind.</i><br><i>– Paavo Nurmi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
