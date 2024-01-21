@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind.</i><br><i>– Paavo Nurmi.</i><br></p>
+<p align="center"><br><i>Not what we have but what we enjoy constitutes our abundance.</i><br><i>– Jean Antoine Petit-Senn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
