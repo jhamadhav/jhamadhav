@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Not what we have but what we enjoy constitutes our abundance.</i><br><i>– Jean Antoine Petit-Senn.</i><br></p>
+<p align="center"><br><i>No yesterdays are ever wasted for those who give themselves to today.</i><br><i>– Brendan Behan.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
