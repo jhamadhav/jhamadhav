@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The power of intuitive understanding will protect you from harm until the end of your days.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Never deny a diagnosis but do deny the negative verdict that may go with it.</i><br><i>– Norman Cousins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
