@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No yesterdays are ever wasted for those who give themselves to today.</i><br><i>– Brendan Behan.</i><br></p>
+<p align="center"><br><i>The power of intuitive understanding will protect you from harm until the end of your days.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
