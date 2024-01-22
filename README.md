@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never deny a diagnosis but do deny the negative verdict that may go with it.</i><br><i>– Norman Cousins.</i><br></p>
+<p align="center"><br><i>Life is not a problem to be solved, but a reality to be experienced.</i><br><i>– Søren Kierkegaard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
