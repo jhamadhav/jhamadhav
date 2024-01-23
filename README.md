@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is not a problem to be solved, but a reality to be experienced.</i><br><i>– Søren Kierkegaard.</i><br></p>
+<p align="center"><br><i>If you find yourself in a hole, the first thing to do is stop digging.</i><br><i>– Will Rogers.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
