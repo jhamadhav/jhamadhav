@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you find yourself in a hole, the first thing to do is stop digging.</i><br><i>– Will Rogers.</i><br></p>
+<p align="center"><br><i>Write your plans in pencil and give God the eraser.</i><br><i>– Paulo Coelho.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
