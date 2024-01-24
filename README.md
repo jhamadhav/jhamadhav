@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Any sufficiently advanced technology is equivalent to magic.</i><br><i>– Arthur C. Clarke.</i><br></p>
+<p align="center"><br><i>There are things so deep and complex that only intuition can reach it in our stage of development as human beings.</i><br><i>– John Astin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
