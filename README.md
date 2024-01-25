@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.</i><br><i>– Alan Cohen.</i><br></p>
+<p align="center"><br><i>Love does not consist of gazing at each other, but in looking together in the same direction.</i><br><i>– Antoine de Saint-Exupéry.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
