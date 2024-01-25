@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it.</i><br><i>– M. Scott Peck.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
