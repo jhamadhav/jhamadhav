@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He that is giddy thinks the world turns round.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>A day of worry is more exhausting than a day of work.</i><br><i>– John Lubbock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
