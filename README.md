@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Whatever we expect with confidence becomes our own self-fulfilling prophecy.</i><br><i>– Brian Tracy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
