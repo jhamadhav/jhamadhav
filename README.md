@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
