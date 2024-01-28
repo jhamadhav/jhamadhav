@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.</i><br><i>– Satchel Paige.</i><br></p>
+<p align="center"><br><i>All wisdom does not reside in Delhi.</i><br><i>– P. Chidambaram.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
