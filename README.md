@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It has long been an axiom of mine that the little things are infinitely the most important.</i><br><i>– Arthur Conan Doyle.</i><br></p>
+<p align="center"><br><i>Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.</i><br><i>– Satchel Paige.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
