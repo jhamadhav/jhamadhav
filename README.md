@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We do not quit playing because we grow old, we grow old because we quit playing.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
+<p align="center"><br><i>It has long been an axiom of mine that the little things are infinitely the most important.</i><br><i>– Arthur Conan Doyle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
