@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Dreams come true. Without that possibility, nature would not incite us to have them.</i><br><i>– John Updike.</i><br></p>
+<p align="center"><br><i>With age comes wisdom and a high sex drive. And the wisdom to enjoy it.</i><br><i>– Amber Valletta.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
