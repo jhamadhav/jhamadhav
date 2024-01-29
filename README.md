@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is the flower for which love is the honey.</i><br><i>– Victor Hugo.</i><br></p>
+<p align="center"><br><i>Dreams come true. Without that possibility, nature would not incite us to have them.</i><br><i>– John Updike.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
