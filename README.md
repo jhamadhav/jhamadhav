@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.</i><br><i>– Alan Cohen.</i><br></p>
+<p align="center"><br><i>Life is the flower for which love is the honey.</i><br><i>– Victor Hugo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
