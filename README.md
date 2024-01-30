@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship often ends in love, but love in friendship - never.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>I have learned that to be with those I like is enough.</i><br><i>– Walt Whitman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
