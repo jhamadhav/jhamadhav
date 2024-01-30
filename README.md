@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>With age comes wisdom and a high sex drive. And the wisdom to enjoy it.</i><br><i>– Amber Valletta.</i><br></p>
+<p align="center"><br><i>In wisdom gathered over time I have found that every experience is a form of exploration.</i><br><i>– Ansel Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
