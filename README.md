@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In wisdom gathered over time I have found that every experience is a form of exploration.</i><br><i>– Ansel Adams.</i><br></p>
+<p align="center"><br><i>Friendship often ends in love, but love in friendship - never.</i><br><i>– Albert Camus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
