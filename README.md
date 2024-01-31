@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't put a limit on anything. The more you dream, the farther you get.</i><br><i>– Michael Phelps.</i><br></p>
+<p align="center"><br><i>Freedom is not worth having if it does not connote freedom to err.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
