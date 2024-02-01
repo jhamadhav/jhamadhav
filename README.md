@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>In the depth of winter, I finally learned that there was within me an invincible summer.</i><br><i>– Albert Camus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
