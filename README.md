@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them.</i><br><i>– Denis Waitley.</i><br></p>
+<p align="center"><br><i>Make it your habit not to be critical about small things.</i><br><i>– Edward Everett Hale.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
