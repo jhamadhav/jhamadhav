@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend is one who knows you and loves you just the same.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>Sustaining true friendship is a lot more challenging than we give it credit for.</i><br><i>– Mariella Frostrup.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
