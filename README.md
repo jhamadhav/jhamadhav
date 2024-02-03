@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wherever a man turns he can find someone who needs him.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>A friend is one who knows you and loves you just the same.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
