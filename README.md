@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>Short words are best and the old words when short are best of all.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
