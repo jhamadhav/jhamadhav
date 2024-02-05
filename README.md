@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.</i><br><i>– Dhammapada.</i><br></p>
+<p align="center"><br><i>Ideals are an imaginative understanding of that which is desirable in that which is possible.</i><br><i>– Walter Lippmann.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
