@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation.</i><br><i>– Paul Theroux.</i><br></p>
+<p align="center"><br><i>Both formerly and now, it is only suffering that I describe, and the cessation of suffering.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
