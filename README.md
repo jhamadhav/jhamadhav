@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Both formerly and now, it is only suffering that I describe, and the cessation of suffering.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it.</i><br><i>– John Steinbeck.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
