@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We have two ears and one mouth so that we can listen twice as much as we speak.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Never apologize for showing feeling. When you do so, you apologize for truth.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
