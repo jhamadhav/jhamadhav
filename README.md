@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never apologize for showing feeling. When you do so, you apologize for truth.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
