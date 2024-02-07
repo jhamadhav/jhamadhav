@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything in the universe goes by indirection. There are no straight lines.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Never interrupt your enemy when he is making a mistake.</i><br><i>– Napoleon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
