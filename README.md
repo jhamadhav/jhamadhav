@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>Everything in the universe goes by indirection. There are no straight lines.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
