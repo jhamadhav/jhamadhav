@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trying to define yourself is like trying to bite your own teeth.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Everything that irritates us about others can lead us to a better understanding of ourselves.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
