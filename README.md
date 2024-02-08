@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never interrupt your enemy when he is making a mistake.</i><br><i>– Napoleon.</i><br></p>
+<p align="center"><br><i>Silence at the proper season is wisdom, and better than any speech.</i><br><i>– Plutarch.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
