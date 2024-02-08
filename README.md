@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence at the proper season is wisdom, and better than any speech.</i><br><i>– Plutarch.</i><br></p>
+<p align="center"><br><i>Trying to define yourself is like trying to bite your own teeth.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
