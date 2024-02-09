@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>True friends stab you in the front.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Life's most persistent and urgent question is, 'What are you doing for others?'</i><br><i>– Martin Luther King Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
