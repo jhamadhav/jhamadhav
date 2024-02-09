@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The noblest worship is to make yourself as good and as just as you can.</i><br><i>– Isocrates.</i><br></p>
+<p align="center"><br><i>True friends stab you in the front.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
