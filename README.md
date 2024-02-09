@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>Your sacred space is where you can find yourself again and again.</i><br><i>– Joseph Campbell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
