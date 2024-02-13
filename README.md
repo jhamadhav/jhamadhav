@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I believe in one thing only, the power of human will.</i><br><i>– Joseph Stalin.</i><br></p>
+<p align="center"><br><i>We should not give up and we should not allow the problem to defeat us.</i><br><i>– A. P. J. Abdul Kalam.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
