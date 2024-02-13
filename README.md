@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life's most persistent and urgent question is, 'What are you doing for others?'</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>Be slow in choosing a friend, slower in changing.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
