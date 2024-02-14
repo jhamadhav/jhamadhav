@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>True friendship can afford true knowledge. It does not depend on darkness and ignorance.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>And as we let our own light shine, we unconsciously give other people permission to do the same.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
