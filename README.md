@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is the flower for which love is the honey.</i><br><i>– Victor Hugo.</i><br></p>
+<p align="center"><br><i>The biggest room in the world is room for improvement.</i><br><i>– Helmut Schmidt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
