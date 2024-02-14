@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We should not give up and we should not allow the problem to defeat us.</i><br><i>– A. P. J. Abdul Kalam.</i><br></p>
+<p align="center"><br><i>True friendship can afford true knowledge. It does not depend on darkness and ignorance.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
