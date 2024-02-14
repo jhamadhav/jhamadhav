@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>And as we let our own light shine, we unconsciously give other people permission to do the same.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>Life is the flower for which love is the honey.</i><br><i>– Victor Hugo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
