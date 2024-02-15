@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The biggest room in the world is room for improvement.</i><br><i>– Helmut Schmidt.</i><br></p>
+<p align="center"><br><i>If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.</i><br><i>– Pema Chödrön.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
