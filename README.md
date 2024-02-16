@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man is free who is not master of himself.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>By failing to prepare, you are preparing to fail.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
