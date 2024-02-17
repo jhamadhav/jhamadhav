@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>By failing to prepare, you are preparing to fail.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else?</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
