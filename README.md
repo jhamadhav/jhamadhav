@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Many sophisticated, intelligent people lack wisdom and common sense.</i><br><i>– Joyce Meyer.</i><br></p>
+<p align="center"><br><i>Excellence is not a skill. It is an attitude.</i><br><i>– Ralph Marston.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
