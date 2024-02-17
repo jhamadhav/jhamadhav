@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One today is worth two tomorrows.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>Many sophisticated, intelligent people lack wisdom and common sense.</i><br><i>– Joyce Meyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
