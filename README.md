@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.</i><br><i>– Jim Bouton.</i><br></p>
+<p align="center"><br><i>I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.</i><br><i>– G. K. Chesterton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
