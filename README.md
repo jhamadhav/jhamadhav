@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust yourself. You know more than you think you do.</i><br><i>– Benjamin Spock.</i><br></p>
+<p align="center"><br><i>Our kindness may be the most persuasive argument for that which we believe.</i><br><i>– Gordon Hinckley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
