@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never explain - your friends do not need it and your enemies will not believe you anyway.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>I violated the Noah rule: Predicting rain doesn't count; building arks does.</i><br><i>– Warren Buffett.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
