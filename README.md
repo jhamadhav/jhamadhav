@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>They can conquer who believe they can.</i><br><i>– Virgil.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
