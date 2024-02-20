@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>They can conquer who believe they can.</i><br><i>– Virgil.</i><br></p>
+<p align="center"><br><i>Never complain and never explain.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
