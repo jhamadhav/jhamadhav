@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I violated the Noah rule: Predicting rain doesn't count; building arks does.</i><br><i>– Warren Buffett.</i><br></p>
+<p align="center"><br><i>To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
