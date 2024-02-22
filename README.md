@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'd rather attempt to do something great and fail than to attempt to do nothing and succeed.</i><br><i>– Robert Schuller.</i><br></p>
+<p align="center"><br><i>When your desires are strong enough you will appear to possess superhuman powers to achieve.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
