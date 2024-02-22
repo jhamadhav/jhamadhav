@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowing your own darkness is the best method for dealing with the darkness of other people.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>The first step to getting the things you want out of life is this: decide what you want.</i><br><i>– Ben Stein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
