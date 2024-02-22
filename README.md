@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When your desires are strong enough you will appear to possess superhuman powers to achieve.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Knowing your own darkness is the best method for dealing with the darkness of other people.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
