@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Blessed is the man who expects nothing, for he shall never be disappointed.</i><br><i>– Alexander Pope.</i><br></p>
+<p align="center"><br><i>I'd rather attempt to do something great and fail than to attempt to do nothing and succeed.</i><br><i>– Robert Schuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
