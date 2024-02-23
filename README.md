@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The first step to getting the things you want out of life is this: decide what you want.</i><br><i>– Ben Stein.</i><br></p>
+<p align="center"><br><i>You don't choose your family. They are God's gift to you, as you are to them.</i><br><i>– Desmond Tutu.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
