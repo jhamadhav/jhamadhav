@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Russia is a riddle wrapped in a mystery inside an enigma.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Not all those who wander are lost.</i><br><i>– J. R. R. Tolkien.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
