@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You don't choose your family. They are God's gift to you, as you are to them.</i><br><i>– Desmond Tutu.</i><br></p>
+<p align="center"><br><i>Russia is a riddle wrapped in a mystery inside an enigma.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
