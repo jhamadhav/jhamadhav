@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Not all those who wander are lost.</i><br><i>– J. R. R. Tolkien.</i><br></p>
+<p align="center"><br><i>He who knows that enough is enough will always have enough.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
