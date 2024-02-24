@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must not say every mistake is a foolish one.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>Genuine sincerity opens people's hearts, while manipulation causes them to close.</i><br><i>– Daisaku Ikeda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
