@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who knows that enough is enough will always have enough.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people.</i><br><i>– Mary Kay Ash.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
