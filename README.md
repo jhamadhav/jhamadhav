@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reality is merely an illusion, albeit a very persistent one.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>We must not say every mistake is a foolish one.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
