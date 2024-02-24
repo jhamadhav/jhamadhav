@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people.</i><br><i>– Mary Kay Ash.</i><br></p>
+<p align="center"><br><i>Reality is merely an illusion, albeit a very persistent one.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
