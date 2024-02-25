@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do good by stealth, and blush to find it fame.</i><br><i>– Alexander Pope.</i><br></p>
+<p align="center"><br><i>Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.</i><br><i>– Doug Larson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
