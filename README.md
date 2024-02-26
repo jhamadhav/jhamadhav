@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our intention creates our reality.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Russia is a riddle wrapped in a mystery inside an enigma.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
