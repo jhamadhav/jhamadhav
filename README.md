@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Once you label me you negate me.</i><br><i>– Søren Kierkegaard.</i><br></p>
+<p align="center"><br><i>Our intention creates our reality.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
