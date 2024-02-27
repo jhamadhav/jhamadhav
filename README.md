@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yeah, we all shine on, like the moon, and the stars, and the sun.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>He has no enemies, but is intensely disliked by his friends.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
