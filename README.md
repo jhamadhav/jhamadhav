@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The beginning of knowledge is the discovery of something we do not understand.</i><br><i>– Frank Herbert.</i><br></p>
+<p align="center"><br><i>I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
