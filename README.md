@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't shake hands with a clenched fist.</i><br><i>– Indira Gandhi.</i><br></p>
+<p align="center"><br><i>Skill to do comes of doing.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
