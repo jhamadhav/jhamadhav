@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be great in act, as you have been in thought.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>People don't notice whether it's winter or summer when they're happy.</i><br><i>– Anton Chekhov.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
