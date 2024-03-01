@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I gave my life to become the person I am right now. Was it worth it?</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
