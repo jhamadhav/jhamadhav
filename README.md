@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is found only in truth.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>I gave my life to become the person I am right now. Was it worth it?</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
