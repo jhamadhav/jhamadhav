@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People don't notice whether it's winter or summer when they're happy.</i><br><i>– Anton Chekhov.</i><br></p>
+<p align="center"><br><i>The ego is nothing other than the focus of conscious attention.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
