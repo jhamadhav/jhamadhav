@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The ego is nothing other than the focus of conscious attention.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Wisdom is found only in truth.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
