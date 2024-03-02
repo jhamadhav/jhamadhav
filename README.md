@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.</i><br><i>– Chuck Norris.</i><br></p>
+<p align="center"><br><i>A day of worry is more exhausting than a day of work.</i><br><i>– John Lubbock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
