@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.</i><br><i>– Chuck Norris.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
