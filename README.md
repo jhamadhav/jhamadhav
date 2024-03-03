@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If a man does his best, what else is there?</i><br><i>– George S. Patton.</i><br></p>
+<p align="center"><br><i>Rejoicing in our joy, not suffering over our suffering, makes someone a friend.</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
