@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Coming together is a beginning; keeping together is progress; working together is success.</i><br><i>– Edward Everett Hale.</i><br></p>
+<p align="center"><br><i>If a man does his best, what else is there?</i><br><i>– George S. Patton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
