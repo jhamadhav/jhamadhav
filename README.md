@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Rejoicing in our joy, not suffering over our suffering, makes someone a friend.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>The free man is he who does not fear to go to the end of his thought.</i><br><i>– Léon Blum.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
