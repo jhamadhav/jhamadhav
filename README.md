@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.</i><br><i>– Stephen Covey.</i><br></p>
+<p align="center"><br><i>We are masters of the unsaid words, but slaves of those we let slip out.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
