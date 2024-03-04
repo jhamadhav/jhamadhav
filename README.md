@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.</i><br><i>– Plotinus.</i><br></p>
+<p align="center"><br><i>We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.</i><br><i>– Stephen Covey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
