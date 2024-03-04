@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are masters of the unsaid words, but slaves of those we let slip out.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>A friend is, as it were, a second self.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
