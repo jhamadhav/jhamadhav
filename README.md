@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend is, as it were, a second self.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>Do not wait for leaders; do it alone, person to person.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
