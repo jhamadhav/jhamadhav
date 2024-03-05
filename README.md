@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To fly, we have to have resistance.</i><br><i>– Maya Lin.</i><br></p>
+<p align="center"><br><i>Time is the most valuable thing a man can spend.</i><br><i>– Theophrastus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
