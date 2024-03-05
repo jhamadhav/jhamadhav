@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>To fly, we have to have resistance.</i><br><i>– Maya Lin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
