@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not wait for leaders; do it alone, person to person.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
