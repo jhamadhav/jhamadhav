@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is a miracle that curiosity survives formal education.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>The only real mistake is the one from which we learn nothing.</i><br><i>– John Powell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
