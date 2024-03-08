@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Opportunity is missed by most because it is dressed in overalls and looks like work.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Don't ruin the present with the ruined past.</i><br><i>– Ellen Gilchrist.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
