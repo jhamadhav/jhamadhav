@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who angers you conquers you.</i><br><i>– Elizabeth Kenny.</i><br></p>
+<p align="center"><br><i>The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.</i><br><i>– Daniel J. Boorstin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
