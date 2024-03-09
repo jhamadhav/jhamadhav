@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.</i><br><i>– Arthur Ashe.</i><br></p>
+<p align="center"><br><i>Our kindness may be the most persuasive argument for that which we believe.</i><br><i>– Gordon Hinckley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
