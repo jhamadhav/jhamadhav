@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't ruin the present with the ruined past.</i><br><i>– Ellen Gilchrist.</i><br></p>
+<p align="center"><br><i>Respect should be earned by actions, and not acquired by years.</i><br><i>– Frank Lloyd Wright.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
