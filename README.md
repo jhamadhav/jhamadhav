@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Respect should be earned by actions, and not acquired by years.</i><br><i>– Frank Lloyd Wright.</i><br></p>
+<p align="center"><br><i>We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.</i><br><i>– Arthur Ashe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
