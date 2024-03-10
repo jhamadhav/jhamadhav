@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our kindness may be the most persuasive argument for that which we believe.</i><br><i>– Gordon Hinckley.</i><br></p>
+<p align="center"><br><i>Love cures people - both the ones who give it and the ones who receive it.</i><br><i>– Karl Menninger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
