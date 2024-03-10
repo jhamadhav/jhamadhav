@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love cures people - both the ones who give it and the ones who receive it.</i><br><i>– Karl Menninger.</i><br></p>
+<p align="center"><br><i>I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
