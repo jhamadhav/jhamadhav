@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truest greatness lies in being kind, the truest wisdom in a happy mind.</i><br><i>– Ella Wheeler Wilcox.</i><br></p>
+<p align="center"><br><i>We are all faced with a series of great opportunities brilliantly disguised as impossible situations.</i><br><i>– Chuck Swindoll.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
