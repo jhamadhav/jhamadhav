@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be what we are, and to become what we are capable of becoming, is the only end of life.</i><br><i>– Robert Louis Stevenson.</i><br></p>
+<p align="center"><br><i>There is no friendship, no love, like that of the parent for the child.</i><br><i>– Henry Ward Beecher.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
