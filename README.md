@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no friendship, no love, like that of the parent for the child.</i><br><i>– Henry Ward Beecher.</i><br></p>
+<p align="center"><br><i>In order to succeed, we must first believe that we can.</i><br><i>– Nikos Kazantzakis.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
