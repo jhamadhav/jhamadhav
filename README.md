@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Successful people ask better questions, and as a result, they get better answers.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>I'd rather regret the things I've done than regret the things I haven't done.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
