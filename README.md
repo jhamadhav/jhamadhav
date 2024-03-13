@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sometimes it is better to lose and do the right thing than to win and do the wrong thing.</i><br><i>– Tony Blair.</i><br></p>
+<p align="center"><br><i>Good, better, best. Never let it rest. ‘Til your good is better and your better is best.</i><br><i>– Jerome.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
