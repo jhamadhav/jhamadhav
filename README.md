@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'd rather regret the things I've done than regret the things I haven't done.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.</i><br><i>– Bernice Reagon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
