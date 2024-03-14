@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good, better, best. Never let it rest. ‘Til your good is better and your better is best.</i><br><i>– Jerome.</i><br></p>
+<p align="center"><br><i>There are three faithful friends - an old wife, an old dog, and ready money.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
