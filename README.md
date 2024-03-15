@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You're not obligated to win. You're obligated to keep trying to do the best you can every day.</i><br><i>– Marian Wright Edelman.</i><br></p>
+<p align="center"><br><i>I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match.</i><br><i>– Mia Hamm.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
