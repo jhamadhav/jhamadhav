@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match.</i><br><i>– Mia Hamm.</i><br></p>
+<p align="center"><br><i>Life is not a problem to be solved, but a reality to be experienced.</i><br><i>– Søren Kierkegaard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
