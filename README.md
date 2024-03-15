@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is not a problem to be solved, but a reality to be experienced.</i><br><i>– Søren Kierkegaard.</i><br></p>
+<p align="center"><br><i>The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery.</i><br><i>– Anaïs Nin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
