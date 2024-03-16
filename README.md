@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you doubt your power, you give power to your doubt.</i><br><i>– Honoré de Balzac.</i><br></p>
+<p align="center"><br><i>We can do no great things, only small things with great love.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
