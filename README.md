@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Joy is the best makeup.</i><br><i>– Anne Lamott.</i><br></p>
+<p align="center"><br><i>When you doubt your power, you give power to your doubt.</i><br><i>– Honoré de Balzac.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
