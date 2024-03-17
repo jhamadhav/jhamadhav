@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.</i><br><i>– Colette.</i><br></p>
+<p align="center"><br><i>It takes courage to grow up and become who you really are.</i><br><i>– E. E. Cummings.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
