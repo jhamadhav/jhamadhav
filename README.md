@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I violated the Noah rule: Predicting rain doesn't count; building arks does.</i><br><i>– Warren Buffett.</i><br></p>
+<p align="center"><br><i>Difficulties are things that show a person what they are.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
