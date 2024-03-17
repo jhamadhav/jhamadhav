@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Difficulties are things that show a person what they are.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Knowing is not enough; we must apply!</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
