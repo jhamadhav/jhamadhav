@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One may say the eternal mystery of the world is its comprehensibility.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.</i><br><i>– Amy Tan.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
