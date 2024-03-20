@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.</i><br><i>– Sri Chinmoy.</i><br></p>
+<p align="center"><br><i>No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.</i><br><i>– W. Clement Stone.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
