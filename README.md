@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If we look at the world with a love of life, the world will reveal its beauty to us.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>Almost everything comes from nothing.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
