@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Almost everything comes from nothing.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
+<p align="center"><br><i>I begin with an idea and then it becomes something else.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
