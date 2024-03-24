@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Champions keep playing until they get it right.</i><br><i>– Billie Jean King.</i><br></p>
+<p align="center"><br><i>Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.</i><br><i>– Julie Morgenstern.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
