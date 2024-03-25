@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All achievements, all earned riches, have their beginning in an idea.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>The energy of the mind is the essence of life.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
