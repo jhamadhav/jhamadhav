@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most great people have attained their greatest success just one step beyond their greatest failure.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some.</i><br><i>– Charles Dickens.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
