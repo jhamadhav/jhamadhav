@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no failure except in no longer trying.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>Make it your habit not to be critical about small things.</i><br><i>– Edward Everett Hale.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
