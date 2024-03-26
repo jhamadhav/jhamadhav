@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The energy of the mind is the essence of life.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>If you only have a hammer, you tend to see every problem as a nail.</i><br><i>– Abraham Maslow.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
