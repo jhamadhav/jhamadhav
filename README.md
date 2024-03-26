@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Make it your habit not to be critical about small things.</i><br><i>– Edward Everett Hale.</i><br></p>
+<p align="center"><br><i>A true friend is one who overlooks your failures and tolerates your success!</i><br><i>– Doug Larson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
