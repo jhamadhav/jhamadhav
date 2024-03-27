@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Mountains cannot be surmounted except by winding paths.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>He who talks more is sooner exhausted.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
