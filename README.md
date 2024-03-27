@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Champions keep playing until they get it right.</i><br><i>– Billie Jean King.</i><br></p>
+<p align="center"><br><i>Mountains cannot be surmounted except by winding paths.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
