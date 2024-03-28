@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>An organization, no matter how well designed, is only as good as the people who live and work in it.</i><br><i>– Dee Hock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
