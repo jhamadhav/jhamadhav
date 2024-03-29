@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When we are no longer able to change a situation - we are challenged to change ourselves.</i><br><i>– Viktor Frankl.</i><br></p>
+<p align="center"><br><i>To succeed, we must first believe that we can.</i><br><i>– Michael Korda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
