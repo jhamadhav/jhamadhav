@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man blames himself. The inferior man blames others.</i><br><i>– Don Shula.</i><br></p>
+<p align="center"><br><i>The only way to prove that you're a good sport is to lose.</i><br><i>– Ernie Banks.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
