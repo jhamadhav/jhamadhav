@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only way to prove that you're a good sport is to lose.</i><br><i>– Ernie Banks.</i><br></p>
+<p align="center"><br><i>At the center of your being, you have the answer; you know who you are, and you know what you want.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
