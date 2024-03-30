@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>At the center of your being, you have the answer; you know who you are, and you know what you want.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Much wisdom often goes with fewer words.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
