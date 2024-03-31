@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What other people may find in poetry or art museums, I find in the flight of a good drive.</i><br><i>– Arnold Palmer.</i><br></p>
+<p align="center"><br><i>There never was a good knife made of bad steel.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
