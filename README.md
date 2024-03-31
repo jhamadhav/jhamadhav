@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Experience is not what happens to you; it's what you do with what happens to you.</i><br><i>– Aldous Huxley.</i><br></p>
+<p align="center"><br><i>Reason and free inquiry are the only effectual agents against error.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
