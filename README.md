@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.</i><br><i>– Bernice Reagon.</i><br></p>
+<p align="center"><br><i>Coming together is a beginning; keeping together is progress; working together is success.</i><br><i>– Edward Everett Hale.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
