@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Coming together is a beginning; keeping together is progress; working together is success.</i><br><i>– Edward Everett Hale.</i><br></p>
+<p align="center"><br><i>Positive thinking will let you do everything better than negative thinking will.</i><br><i>– Zig Ziglar.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
