@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never deny a diagnosis but do deny the negative verdict that may go with it.</i><br><i>– Norman Cousins.</i><br></p>
+<p align="center"><br><i>What do we live for, if it is not to make life less difficult for each other?</i><br><i>– George Eliot.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
