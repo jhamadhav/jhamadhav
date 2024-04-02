@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truest greatness lies in being kind, the truest wisdom in a happy mind.</i><br><i>– Ella Wheeler Wilcox.</i><br></p>
+<p align="center"><br><i>Never deny a diagnosis but do deny the negative verdict that may go with it.</i><br><i>– Norman Cousins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
