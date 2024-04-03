@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A wise man can learn more from a foolish question than a fool can learn from a wise answer.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>Speak low, if you speak love.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
