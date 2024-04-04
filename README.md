@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To listen well is as powerful a means of communication and influence as to talk well.</i><br><i>– John Marshall.</i><br></p>
+<p align="center"><br><i>The meaning I picked, the one that changed my life: Overcome fear, behold wonder.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
