@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who controls others may be powerful, but he who has mastered himself is mightier still.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>To listen well is as powerful a means of communication and influence as to talk well.</i><br><i>– John Marshall.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
