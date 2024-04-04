@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The meaning I picked, the one that changed my life: Overcome fear, behold wonder.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
