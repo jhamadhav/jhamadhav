@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All action results from thought, so it is thoughts that matter.</i><br><i>– Sai Baba.</i><br></p>
+<p align="center"><br><i>True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.</i><br><i>– William Penn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
