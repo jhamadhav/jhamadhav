@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>Memory is the mother of all wisdom.</i><br><i>– Samuel Johnson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
