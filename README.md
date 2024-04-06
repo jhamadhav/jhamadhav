@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technological progress has merely provided us with more efficient means for going backwards.</i><br><i>– Aldous Huxley.</i><br></p>
+<p align="center"><br><i>Fear not for the future, weep not for the past.</i><br><i>– Percy Bysshe Shelley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
