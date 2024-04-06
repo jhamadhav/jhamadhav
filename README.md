@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The noblest worship is to make yourself as good and as just as you can.</i><br><i>– Isocrates.</i><br></p>
+<p align="center"><br><i>Technological progress has merely provided us with more efficient means for going backwards.</i><br><i>– Aldous Huxley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
