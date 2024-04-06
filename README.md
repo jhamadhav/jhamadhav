@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>The noblest worship is to make yourself as good and as just as you can.</i><br><i>– Isocrates.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
