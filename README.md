@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Well begun is half done.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>History is written by the victors.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
