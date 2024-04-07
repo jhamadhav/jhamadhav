@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>History is written by the victors.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
