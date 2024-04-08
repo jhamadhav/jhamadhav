@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.</i><br><i>– Mary Kay Ash.</i><br></p>
+<p align="center"><br><i>Don't settle for a relationship that won't let you be yourself.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
