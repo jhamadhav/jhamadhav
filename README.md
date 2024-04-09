@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't settle for a relationship that won't let you be yourself.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>None knows the weight of another's burden.</i><br><i>– George Herbert.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
