@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>None knows the weight of another's burden.</i><br><i>– George Herbert.</i><br></p>
+<p align="center"><br><i>Wisdom is the supreme part of happiness.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
