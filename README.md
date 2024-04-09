@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is the supreme part of happiness.</i><br><i>– Sophocles.</i><br></p>
+<p align="center"><br><i>One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
