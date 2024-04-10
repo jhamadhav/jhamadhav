@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The sincere friends of this world are as ship lights in the stormiest of nights.</i><br><i>– Giotto.</i><br></p>
+<p align="center"><br><i>The universe is made of stories, not atoms.</i><br><i>– Muriel Rukeyser.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
