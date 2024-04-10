@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wherever a man turns he can find someone who needs him.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>The sincere friends of this world are as ship lights in the stormiest of nights.</i><br><i>– Giotto.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
