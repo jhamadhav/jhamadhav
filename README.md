@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A true friend is the most precious of all possessions and the one we take the least thought about acquiring.</i><br><i>– François de La Rochefoucauld.</i><br></p>
+<p align="center"><br><i>Make the best use of what is in your power and take the rest as it happens.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
