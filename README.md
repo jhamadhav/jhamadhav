@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Make the best use of what is in your power and take the rest as it happens.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>When in doubt, don't.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
