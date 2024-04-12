@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sports do not build character. They reveal it.</i><br><i>– Heywood Broun.</i><br></p>
+<p align="center"><br><i>In order to win, you must expect to win.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
