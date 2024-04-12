@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be wrong is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Everything that irritates us about others can lead us to a better understanding of ourselves.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
