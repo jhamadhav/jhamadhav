@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it.</i><br><i>– M. Scott Peck.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
