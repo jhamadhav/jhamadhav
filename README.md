@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Take rest; a field that has rested gives a bountiful crop.</i><br><i>– Ovid.</i><br></p>
+<p align="center"><br><i>First say to yourself what you would be; and then do what you have to do.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
