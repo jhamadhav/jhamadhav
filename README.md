@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Take rest; a field that has rested gives a bountiful crop.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
