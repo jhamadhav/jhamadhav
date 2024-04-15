@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>First say to yourself what you would be; and then do what you have to do.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>It's easier to resist at the beginning than at the end.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
