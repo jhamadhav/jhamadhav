@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's easier to resist at the beginning than at the end.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>A really great talent finds its happiness in execution.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
