@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whatever happens, take responsibility.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.</i><br><i>– Carlos Castaneda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
