@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Imagination is the living power and prime agent of all human perception.</i><br><i>– Samuel Taylor Coleridge.</i><br></p>
+<p align="center"><br><i>The greatest gift of life is friendship, and I have received it.</i><br><i>– Hubert Humphrey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
