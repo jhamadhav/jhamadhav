@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you spend too much time thinking about a thing, you'll never get it done.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>Whenever you find yourself on the side of the majority, it is time to pause and reflect.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
