@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>I destroy my enemies when I make them my friends.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
