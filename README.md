@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whenever you find yourself on the side of the majority, it is time to pause and reflect.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
