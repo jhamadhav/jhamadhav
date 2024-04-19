@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is more wisdom in your body than in your deepest philosophy.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>The wisdom of the wise, and the experience of ages, may be preserved by quotation.</i><br><i>– Isaac D'Israeli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
