@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Truth, and goodness, and beauty are but different faces of the same all.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Set your goals high, and don't stop till you get there.</i><br><i>– Bo Jackson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
