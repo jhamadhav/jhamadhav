@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Set your goals high, and don't stop till you get there.</i><br><i>– Bo Jackson.</i><br></p>
+<p align="center"><br><i>Three things cannot be long hidden: the sun, the moon, and the truth.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
