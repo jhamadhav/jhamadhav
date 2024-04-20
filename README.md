@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>How is it possible to find meaning in a finite world, given my waist and shirt size?</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>Imagination is the living power and prime agent of all human perception.</i><br><i>– Samuel Taylor Coleridge.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
