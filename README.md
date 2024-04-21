@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>People ask me what I do in winter when there's no baseball. I'll tell you what I do. I stare out the window and wait for spring.</i><br><i>– Rogers Hornsby.</i><br></p>
+<p align="center"><br><i>Be the change that you want to see in the world.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
