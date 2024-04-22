@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ethics change with technology.</i><br><i>– Larry Niven.</i><br></p>
+<p align="center"><br><i>If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
