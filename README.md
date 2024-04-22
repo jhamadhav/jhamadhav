@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Argue for your limitations, and sure enough they're yours.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>There is nothing on this earth more to be prized than true friendship.</i><br><i>– Thomas Aquinas.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
