@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is like a sewer. What you get out of it depends on what you put into it.</i><br><i>– Tom Lehrer.</i><br></p>
+<p align="center"><br><i>There is only one success: to be able to spend your life in your own way.</i><br><i>– Christopher Morley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
