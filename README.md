@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is the neglect of timely repair that makes rebuilding necessary.</i><br><i>– Richard Whately.</i><br></p>
+<p align="center"><br><i>No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.</i><br><i>– Robert Southey.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
