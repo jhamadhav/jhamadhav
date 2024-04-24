@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.</i><br><i>– Robert Southey.</i><br></p>
+<p align="center"><br><i>If you can't feed a hundred people, then feed just one.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
