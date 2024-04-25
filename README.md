@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Perfection of means and confusion of ends seems to characterize our age.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>To conquer fear is the beginning of wisdom.</i><br><i>– Bertrand Russell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
