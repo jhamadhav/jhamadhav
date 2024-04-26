@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.</i><br><i>– Bernice Reagon.</i><br></p>
+<p align="center"><br><i>We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.</i><br><i>– Marcel Proust.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
