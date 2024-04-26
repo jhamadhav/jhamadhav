@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.</i><br><i>– Marcel Proust.</i><br></p>
+<p align="center"><br><i>Watch the little things; a small leak will sink a great ship.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
