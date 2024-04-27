@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's only when the tide goes out that you discover who's been swimming naked.</i><br><i>– Warren Buffett.</i><br></p>
+<p align="center"><br><i>Nothing in life is to be feared. It is only to be understood.</i><br><i>– Marie Curie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
