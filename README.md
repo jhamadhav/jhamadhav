@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not worry about your difficulties in Mathematics. I can assure you mine are still greater.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
