@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing in life is to be feared. It is only to be understood.</i><br><i>– Marie Curie.</i><br></p>
+<p align="center"><br><i>Do not worry about your difficulties in Mathematics. I can assure you mine are still greater.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
