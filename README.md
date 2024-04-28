@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>A quarrel between friends, when made up, adds a new tie to friendship.</i><br><i>– Francis de Sales.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
