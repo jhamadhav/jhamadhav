@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more light you allow within you, the brighter the world you live in will be.</i><br><i>– Shakti Gawain.</i><br></p>
+<p align="center"><br><i>Memory is the mother of all wisdom.</i><br><i>– Samuel Johnson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
