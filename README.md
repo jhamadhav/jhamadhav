@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Memory is the mother of all wisdom.</i><br><i>– Samuel Johnson.</i><br></p>
+<p align="center"><br><i>If there is such a thing as a good marriage, it is because it resembles friendship rather than love.</i><br><i>– Michel de Montaigne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
