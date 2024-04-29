@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>No day in which you learn something is a complete loss.</i><br><i>– David Eddings.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
