@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything you can imagine is real.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>The greatest minds are capable of the greatest vices as well as of the greatest virtues.</i><br><i>– René Descartes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
