@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest minds are capable of the greatest vices as well as of the greatest virtues.</i><br><i>– René Descartes.</i><br></p>
+<p align="center"><br><i>The secret of getting ahead is getting started.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
