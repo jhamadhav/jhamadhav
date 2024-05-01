@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Through perseverance many people win success out of what seemed destined to be certain failure.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>Knowledge is proud that it knows so much; wisdom is humble that it knows no more.</i><br><i>– William Cowper.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
