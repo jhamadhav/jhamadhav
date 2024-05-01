@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most folks are as happy as they make up their minds to be.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>One of the advantages of being disorderly is that one is constantly making exciting discoveries.</i><br><i>– A. A. Milne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
