@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Imagination is the highest kite one can fly.</i><br><i>– Lauren Bacall.</i><br></p>
+<p align="center"><br><i>There is nothing impossible to him who will try.</i><br><i>– Alexander the Great.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
