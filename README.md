@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>Imagination is the highest kite one can fly.</i><br><i>– Lauren Bacall.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
