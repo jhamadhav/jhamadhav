@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't smother each other. No one can grow in the shade.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.</i><br><i>– Hanya Yanagihara.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
