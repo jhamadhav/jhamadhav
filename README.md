@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is nothing impossible to him who will try.</i><br><i>– Alexander the Great.</i><br></p>
+<p align="center"><br><i>Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
