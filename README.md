@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Luck is what happens when preparation meets opportunity.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>The root of suffering is attachment.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
