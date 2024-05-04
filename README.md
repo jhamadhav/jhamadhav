@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If it is not right do not do it; if it is not true do not say it.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>It is the quality of our work which will please God, not the quantity.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
