@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship, like the immortality of the soul, is too good to be believed.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Habit, if not resisted, soon becomes necessity.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
