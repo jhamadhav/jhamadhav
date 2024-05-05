@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The differences between friends cannot but reinforce their friendship.</i><br><i>– Mao Zedong.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
