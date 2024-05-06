@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>True knowledge exists in knowing that you know nothing.</i><br><i>– Isocrates.</i><br></p>
+<p align="center"><br><i>It is not wisdom but Authority that makes a law.</i><br><i>– Thomas Hobbes.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
