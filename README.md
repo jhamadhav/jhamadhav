@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.</i><br><i>– Kathleen Norris.</i><br></p>
+<p align="center"><br><i>True knowledge exists in knowing that you know nothing.</i><br><i>– Isocrates.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
