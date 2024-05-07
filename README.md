@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The future is completely open, and we are writing it moment to moment.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>Start where you are. Use what you have. Do what you can.</i><br><i>– Arthur Ashe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
