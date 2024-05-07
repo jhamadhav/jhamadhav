@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He has no enemies, but is intensely disliked by his friends.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Think like a man of action; act like a man of thought.</i><br><i>– Henri Bergson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
