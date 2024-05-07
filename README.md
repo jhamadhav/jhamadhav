@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Start where you are. Use what you have. Do what you can.</i><br><i>– Arthur Ashe.</i><br></p>
+<p align="center"><br><i>Everything that irritates us about others can lead us to an understanding of ourselves.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
