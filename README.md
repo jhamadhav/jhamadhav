@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>With pride, there are many curses. With humility, there come many blessings.</i><br><i>– Ezra Taft Benson.</i><br></p>
+<p align="center"><br><i>Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible.</i><br><i>– Hannah Arendt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
