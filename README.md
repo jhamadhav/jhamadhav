@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no way to happiness, happiness is the way.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>Kindness is the language which the deaf can hear and the blind can see.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
