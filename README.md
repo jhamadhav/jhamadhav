@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In life, all good things come hard, but wisdom is the hardest to come by.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>Take no thought of who is right or wrong or who is better than. Be not for or against.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
