@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday's home runs don't win today's games.</i><br><i>– Babe Ruth.</i><br></p>
+<p align="center"><br><i>Just as much as we see in others, we have in ourselves.</i><br><i>– William Hazlitt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
