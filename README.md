@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just as much as we see in others, we have in ourselves.</i><br><i>– William Hazlitt.</i><br></p>
+<p align="center"><br><i>All love that has not friendship for its base, is like a mansion built upon the sand.</i><br><i>– Ella Wheeler Wilcox.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
