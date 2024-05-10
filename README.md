@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>All love that has not friendship for its base, is like a mansion built upon the sand.</i><br><i>– Ella Wheeler Wilcox.</i><br></p>
+<p align="center"><br><i>I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
