@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Logic is the beginning of wisdom, not the end.</i><br><i>– Leonard Nimoy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
