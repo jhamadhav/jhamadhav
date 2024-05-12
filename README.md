@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Logic is the beginning of wisdom, not the end.</i><br><i>– Leonard Nimoy.</i><br></p>
+<p align="center"><br><i>Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.</i><br><i>– Jane Addams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
