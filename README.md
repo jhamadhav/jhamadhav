@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.</i><br><i>– Jane Addams.</i><br></p>
+<p align="center"><br><i>An ant on the move does more than a dozing ox</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
