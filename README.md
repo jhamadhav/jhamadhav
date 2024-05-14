@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who is fixed to a star does not change his mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>The wisdom of the wise, and the experience of ages, may be preserved by quotation.</i><br><i>– Isaac D'Israeli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
