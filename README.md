@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never apologize for showing feelings. When you do so, you apologize for the truth.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
