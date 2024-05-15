@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>If you can't explain it simply, you don't understand it well enough.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
