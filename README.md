@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The winds and waves are always on the side of the ablest navigators.</i><br><i>– Edward Gibbon.</i><br></p>
+<p align="center"><br><i>Never apologize for showing feelings. When you do so, you apologize for the truth.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
