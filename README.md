@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you can't explain it simply, you don't understand it well enough.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>The superior man is satisfied and composed; the mean man is always full of distress.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
