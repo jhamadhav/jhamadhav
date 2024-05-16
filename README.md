@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man is satisfied and composed; the mean man is always full of distress.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>When the world is so complicated, the simple gift of friendship is within all of our hands.</i><br><i>– Maria Shriver.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
