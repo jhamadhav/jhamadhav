@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The beginning is always today.</i><br><i>– Mary Wollstonecraft.</i><br></p>
+<p align="center"><br><i>Honesty is the best policy.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
