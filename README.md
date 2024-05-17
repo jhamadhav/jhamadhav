@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.</i><br><i>– Harvey Mackay.</i><br></p>
+<p align="center"><br><i>Life is what you make of it. Always has been, always will be.</i><br><i>– Grandma Moses.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
