@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>How is it possible to find meaning in a finite world, given my waist and shirt size?</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.</i><br><i>– Harvey Mackay.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
