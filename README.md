@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is what you make of it. Always has been, always will be.</i><br><i>– Grandma Moses.</i><br></p>
+<p align="center"><br><i>Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
