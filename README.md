@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Avoid having your ego so close to your position that when your position falls, your ego goes with it.</i><br><i>– Colin Powell.</i><br></p>
+<p align="center"><br><i>Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.</i><br><i>– Sidney Hook.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
