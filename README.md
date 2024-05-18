@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Avoid having your ego so close to your position that when your position falls, your ego goes with it.</i><br><i>– Colin Powell.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
