@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If we all did the things we are capable of doing, we would literally astound ourselves.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>The thing always happens that you really believe in; and the belief in a thing makes it happen.</i><br><i>– Frank Lloyd Wright.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
