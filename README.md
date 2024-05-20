@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>If only wed stop trying to be happy wed have a pretty good time.</i><br><i>– Edith Wharton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
