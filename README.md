@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The thing always happens that you really believe in; and the belief in a thing makes it happen.</i><br><i>– Frank Lloyd Wright.</i><br></p>
+<p align="center"><br><i>To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.</i><br><i>– Theodore H. White.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
