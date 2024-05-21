@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.</i><br><i>– G. K. Chesterton.</i><br></p>
+<p align="center"><br><i>Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
