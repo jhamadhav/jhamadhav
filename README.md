@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>In wartime, truth is so precious that she should always be attended by a bodyguard of lies.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
