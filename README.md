@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.</i><br><i>– G. K. Chesterton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
