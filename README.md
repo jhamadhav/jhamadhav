@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In wartime, truth is so precious that she should always be attended by a bodyguard of lies.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.</i><br><i>– Vince Lombardi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
