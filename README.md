@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have an everyday religion that works for me. Love yourself first, and everything else falls into line.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>To avoid criticism, do nothing, say nothing, be nothing.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
