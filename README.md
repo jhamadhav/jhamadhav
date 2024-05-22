@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.</i><br><i>– Vince Lombardi.</i><br></p>
+<p align="center"><br><i>Wishing to be friends is quick work, but friendship is a slow ripening fruit.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
