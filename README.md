@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The man who trusts men will make fewer mistakes than he who distrusts them.</i><br><i>– Camillo Benso, Count of Cavour.</i><br></p>
+<p align="center"><br><i>Finding good players is easy. Getting them to play as a team is another story.</i><br><i>– Casey Stengel.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
