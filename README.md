@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love all, trust a few, do wrong to none.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>TV and the Internet are good because they keep stupid people from spending too much time out in public.</i><br><i>– Douglas Coupland.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
