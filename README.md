@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>TV and the Internet are good because they keep stupid people from spending too much time out in public.</i><br><i>– Douglas Coupland.</i><br></p>
+<p align="center"><br><i>Either you run the day or the day runs you.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
