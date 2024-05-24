@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>How far that little candle throws its beams! So shines a good deed in a naughty world.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>Love all, trust a few, do wrong to none.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
