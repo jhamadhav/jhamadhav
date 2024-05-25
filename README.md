@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's the little details that are vital. Little things make big things happen.</i><br><i>– John Wooden.</i><br></p>
+<p align="center"><br><i>A hero is no braver than an ordinary man, but he is braver five minutes longer.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
