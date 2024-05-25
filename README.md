@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is not something ready-made. It comes from your own actions.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>It's the little details that are vital. Little things make big things happen.</i><br><i>– John Wooden.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
