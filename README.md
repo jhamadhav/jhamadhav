@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A thing well said will be wit in all languages.</i><br><i>– John Dryden.</i><br></p>
+<p align="center"><br><i>To be what we are, and to become what we are capable of becoming, is the only end of life.</i><br><i>– Robert Louis Stevenson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
