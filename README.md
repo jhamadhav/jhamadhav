@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be less curious about people and more curious about ideas.</i><br><i>– Marie Curie.</i><br></p>
+<p align="center"><br><i>The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.</i><br><i>– Honoré de Balzac.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
