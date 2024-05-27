@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A good head and a good heart are always a formidable combination.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>Friendship is Love without his wings!</i><br><i>– Lord Byron.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
