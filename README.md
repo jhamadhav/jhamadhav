@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The attempt to combine wisdom and power has only rarely been successful and then only for a short while.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Impossibilities are merely things which we have not yet learned.</i><br><i>– Charles W. Chesnutt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
