@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
+<p align="center"><br><i>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.</i><br><i>– Henri Bergson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
