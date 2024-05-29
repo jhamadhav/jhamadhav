@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.</i><br><i>– Henri Bergson.</i><br></p>
+<p align="center"><br><i>Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.</i><br><i>– Charles Eastman.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
