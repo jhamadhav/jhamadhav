@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Blessed are the hearts that can bend; they shall never be broken.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>Our doubts are traitors and make us lose the good we often might win, by fearing to attempt.</i><br><i>– Jane Addams.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
