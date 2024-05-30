@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you can dream it, you can do it.</i><br><i>– Walt Disney.</i><br></p>
+<p align="center"><br><i>Blessed are the hearts that can bend; they shall never be broken.</i><br><i>– Albert Camus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
