@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you have knowledge, let others light their candles in it.</i><br><i>– Margaret Fuller.</i><br></p>
+<p align="center"><br><i>Very little is needed to make a happy life; it is all within yourself, in your way of thinking.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
