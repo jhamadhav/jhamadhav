@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Who sows virtue reaps honor.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>We lost because we told ourselves we lost.</i><br><i>– Leo Tolstoy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
