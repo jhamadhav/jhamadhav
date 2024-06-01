@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We lost because we told ourselves we lost.</i><br><i>– Leo Tolstoy.</i><br></p>
+<p align="center"><br><i>Every man takes the limits of his own field of vision for the limits of the world.</i><br><i>– Arthur Schopenhauer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
