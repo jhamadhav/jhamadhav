@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Remember that a gesture of friendship, no matter how small, is always appreciated.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
+<p align="center"><br><i>If we did the things we are capable of, we would astound ourselves.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
