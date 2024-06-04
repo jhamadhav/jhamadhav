@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't let praise or criticism get to you. It's a weakness to get caught up in either one.</i><br><i>– John Wooden.</i><br></p>
+<p align="center"><br><i>Stay committed to your decisions, but stay flexible in your approach.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
