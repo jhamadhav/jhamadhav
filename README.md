@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>If you spend too much time thinking about a thing, you'll never get it done.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
