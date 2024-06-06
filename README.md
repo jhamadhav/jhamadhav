@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best argument against democracy is a five-minute conversation with the average voter.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>In every walk with nature, one receives far more than he seeks.</i><br><i>– John Muir.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
