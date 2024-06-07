@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We love life, not because we are used to living but because we are used to loving.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>Swim upstream. Go the other way. Ignore the conventional wisdom.</i><br><i>– Sam Walton.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
