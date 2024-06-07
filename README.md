@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later.</i><br><i>– Harold Geneen.</i><br></p>
+<p align="center"><br><i>The smallest deed is better than the greatest intention.</i><br><i>– John Burroughs.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
