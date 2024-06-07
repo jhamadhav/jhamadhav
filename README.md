@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The smallest deed is better than the greatest intention.</i><br><i>– John Burroughs.</i><br></p>
+<p align="center"><br><i>We are all inclined to judge ourselves by our ideals; others, by their acts.</i><br><i>– Harold Nicolson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
