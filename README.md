@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others.</i><br><i>– Anne Lindbergh.</i><br></p>
+<p align="center"><br><i>Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
