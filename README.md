@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are all inclined to judge ourselves by our ideals; others, by their acts.</i><br><i>– Harold Nicolson.</i><br></p>
+<p align="center"><br><i>If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others.</i><br><i>– Anne Lindbergh.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
