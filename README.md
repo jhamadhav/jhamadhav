@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The minute you settle for less than you deserve, you get even less than you settled for.</i><br><i>– Maureen Dowd.</i><br></p>
+<p align="center"><br><i>Silence is a source of great strength.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
