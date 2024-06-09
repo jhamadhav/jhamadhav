@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If a man watches three football games in a row, he should be declared legally dead.</i><br><i>– Erma Bombeck.</i><br></p>
+<p align="center"><br><i>A friend is what the heart needs all the time.</i><br><i>– Henry van Dyke Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
