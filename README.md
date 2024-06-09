@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The personal life deeply lived always expands into truths beyond itself.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>If a man watches three football games in a row, he should be declared legally dead.</i><br><i>– Erma Bombeck.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
