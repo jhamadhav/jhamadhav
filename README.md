@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always do your best. What you plant now, you will harvest later.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>A single rose can be my garden... a single friend, my world.</i><br><i>– Leo Buscaglia.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
