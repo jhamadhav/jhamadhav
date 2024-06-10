@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A single rose can be my garden... a single friend, my world.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
