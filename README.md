@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence is a source of great strength.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Always do your best. What you plant now, you will harvest later.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
