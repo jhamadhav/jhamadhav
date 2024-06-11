@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We shall never know all the good that a simple smile can do.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>It is more shameful to distrust our friends than to be deceived by them.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
