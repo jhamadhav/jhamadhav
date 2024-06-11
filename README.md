@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Effort only fully releases its reward after a person refuses to quit.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Character develops itself in the stream of life.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
