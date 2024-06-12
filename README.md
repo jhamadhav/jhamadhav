@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more you like yourself, the less you are like anyone else, which makes you unique.</i><br><i>– Walt Disney.</i><br></p>
+<p align="center"><br><i>The world is round and the place which may seem like the end may also be the beginning.</i><br><i>– Ivy Baker Priest.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
