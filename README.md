@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is more shameful to distrust our friends than to be deceived by them.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The more you like yourself, the less you are like anyone else, which makes you unique.</i><br><i>– Walt Disney.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
