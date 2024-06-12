@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The world is round and the place which may seem like the end may also be the beginning.</i><br><i>– Ivy Baker Priest.</i><br></p>
+<p align="center"><br><i>Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.</i><br><i>– Steven Van Zandt.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
