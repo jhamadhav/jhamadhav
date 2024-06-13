@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't settle for a relationship that won't let you be yourself.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Truth is powerful and it prevails.</i><br><i>– Sojourner Truth.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
