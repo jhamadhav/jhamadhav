@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.</i><br><i>– William Arthur Ward.</i><br></p>
+<p align="center"><br><i>But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.</i><br><i>– Edmund Burke.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
