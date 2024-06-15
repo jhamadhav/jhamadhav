@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love isn't something you find. Love is something that finds you.</i><br><i>– Loretta Young.</i><br></p>
+<p align="center"><br><i>To choose what is difficult all one's days, as if it were easy, that is faith.</i><br><i>– W. H. Auden.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
