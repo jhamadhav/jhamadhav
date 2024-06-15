@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is a characteristic of wisdom not to do desperate things.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.</i><br><i>– William Arthur Ward.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
