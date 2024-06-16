@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must not say every mistake is a foolish one.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
