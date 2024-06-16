@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You cannot find yourself by going into the past. You can find yourself by coming into the present.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>We must not say every mistake is a foolish one.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
