@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't talk about what you have done or what you are going to do.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>Life is a travelling to the edge of knowledge, then a leap taken.</i><br><i>– Laurence J. Peter.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
