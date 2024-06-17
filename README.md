@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>How is it possible to find meaning in a finite world, given my waist and shirt size?</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
