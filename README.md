@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who knows himself is enlightened.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Life is the flower for which love is the honey.</i><br><i>– Victor Hugo.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
