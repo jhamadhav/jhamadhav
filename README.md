@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is the flower for which love is the honey.</i><br><i>– Victor Hugo.</i><br></p>
+<p align="center"><br><i>There is nothing on this earth more to be prized than true friendship.</i><br><i>– Thomas Aquinas.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
