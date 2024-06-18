@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>He who knows himself is enlightened.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
