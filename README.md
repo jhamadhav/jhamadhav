@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is nothing on this earth more to be prized than true friendship.</i><br><i>– Thomas Aquinas.</i><br></p>
+<p align="center"><br><i>Silence is deep as Eternity; Speech is shallow as Time.</i><br><i>– Thomas Carlyle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
