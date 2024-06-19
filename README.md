@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence is deep as Eternity; Speech is shallow as Time.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>There is nothing in a caterpillar that tells you it's going to be a butterfly.</i><br><i>– Buckminster Fuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
