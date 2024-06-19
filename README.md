@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those that know, do. Those that understand, teach.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.</i><br><i>– Eknath Easwaran.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
