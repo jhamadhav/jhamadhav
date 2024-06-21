@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every artist dips his brush in his own soul, and paints his own nature into his pictures.</i><br><i>– Henry Ward Beecher.</i><br></p>
+<p align="center"><br><i>The final proof of greatness lies in being able to endure criticism without resentment.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
