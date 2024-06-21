@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't shake hands with a clenched fist.</i><br><i>– Indira Gandhi.</i><br></p>
+<p align="center"><br><i>Every artist dips his brush in his own soul, and paints his own nature into his pictures.</i><br><i>– Henry Ward Beecher.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
