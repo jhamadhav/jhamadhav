@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Blessed are the hearts that can bend; they shall never be broken.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>To get the full value of joy you must have someone to divide it with.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
