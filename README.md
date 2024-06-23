@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>With pride, there are many curses. With humility, there come many blessings.</i><br><i>– Ezra Taft Benson.</i><br></p>
+<p align="center"><br><i>Blessed are the hearts that can bend; they shall never be broken.</i><br><i>– Albert Camus.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
