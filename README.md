@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Eternal nothingness is fine if you happen to be dressed for it.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>With pride, there are many curses. With humility, there come many blessings.</i><br><i>– Ezra Taft Benson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
