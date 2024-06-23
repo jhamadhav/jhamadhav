@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We have two ears and one mouth so that we can listen twice as much as we speak.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Whatever you do in life, surround yourself with smart people who'll argue with you.</i><br><i>– John Wooden.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
