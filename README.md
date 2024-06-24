@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>History will be kind to me for I intend to write it.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Experience is simply the name we give our mistakes.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
