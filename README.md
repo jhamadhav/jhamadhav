@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Experience is simply the name we give our mistakes.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Never accept ultimatums, conventional wisdom, or absolutes.</i><br><i>– Christopher Reeve.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
