@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>I know but one freedom and that is the freedom of the mind.</i><br><i>– Antoine de Saint-Exupéry.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
