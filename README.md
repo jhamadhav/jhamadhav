@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
