@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.</i><br><i>– Edward de Bono.</i><br></p>
+<p align="center"><br><i>The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
