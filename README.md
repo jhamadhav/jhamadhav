@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Wisdom alone is the science of other sciences.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
