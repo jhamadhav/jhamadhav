@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest part of our happiness depends on our dispositions, not our circumstances.</i><br><i>– Martha Washington.</i><br></p>
+<p align="center"><br><i>Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
