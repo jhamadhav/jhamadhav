@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom alone is the science of other sciences.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>Friends are the siblings God never gave us.</i><br><i>– Mencius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
