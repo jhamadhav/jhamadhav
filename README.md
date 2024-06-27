@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I know but one freedom and that is the freedom of the mind.</i><br><i>– Antoine de Saint-Exupéry.</i><br></p>
+<p align="center"><br><i>The greatest part of our happiness depends on our dispositions, not our circumstances.</i><br><i>– Martha Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
