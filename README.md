@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.</i><br><i>– Kurt Vonnegut.</i><br></p>
+<p align="center"><br><i>Trust your hunches. They're usually based on facts filed away just below the conscious level.</i><br><i>– Joyce Brothers.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
