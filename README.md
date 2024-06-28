@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest mistake you can make in life is to be continually fearing you will make one.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.</i><br><i>– Kurt Vonnegut.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
