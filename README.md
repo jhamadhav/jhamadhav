@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Freedom is the right to live as we wish.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>The world is but a canvas to the imagination.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
