@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust your hunches. They're usually based on facts filed away just below the conscious level.</i><br><i>– Joyce Brothers.</i><br></p>
+<p align="center"><br><i>I have an everyday religion that works for me. Love yourself first, and everything else falls into line.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
