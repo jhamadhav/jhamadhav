@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never find fault with the absent.</i><br><i>– Alexander Pope.</i><br></p>
+<p align="center"><br><i>No alibi will save you from accepting the responsibility.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
