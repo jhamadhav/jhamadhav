@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>No alibi will save you from accepting the responsibility.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Love isn't something you find. Love is something that finds you.</i><br><i>– Loretta Young.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
