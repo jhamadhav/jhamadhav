@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Success is not final; failure is not fatal: it is the courage to continue that counts.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Independence is happiness.</i><br><i>– Susan B. Anthony.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
