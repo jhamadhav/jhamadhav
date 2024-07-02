@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>The only way to have a friend is to be one.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
