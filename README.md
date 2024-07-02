@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only way to have a friend is to be one.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Good thoughts are no better than good dreams, unless they be executed.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
