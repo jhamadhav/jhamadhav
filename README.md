@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good thoughts are no better than good dreams, unless they be executed.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Friends are those rare people who ask how we are and then wait to hear the answer.</i><br><i>– Ed Cunningham.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
