@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Coming together is a beginning; keeping together is progress; working together is success.</i><br><i>– Edward Everett Hale.</i><br></p>
+<p align="center"><br><i>Reality does not conform to the ideal but confirms it.</i><br><i>– Gustave Flaubert.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
