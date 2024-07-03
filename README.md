@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reality does not conform to the ideal but confirms it.</i><br><i>– Gustave Flaubert.</i><br></p>
+<p align="center"><br><i>Important principles may, and must, be inflexible.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
