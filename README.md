@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Habit, if not resisted, soon becomes necessity.</i><br><i>– Augustine of Hippo.</i><br></p>
+<p align="center"><br><i>The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live.</i><br><i>– Mortimer J. Adler.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
