@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ignorance never settles a question.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>Don't watch the clock; do what it does. Keep going.</i><br><i>– Sam Levenson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
