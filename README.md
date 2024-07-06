@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>In the middle of every difficulty lies opportunity.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>If one is lucky, a solitary fantasy can totally transform one million realities.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
