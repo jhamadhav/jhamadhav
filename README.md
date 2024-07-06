@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If one is lucky, a solitary fantasy can totally transform one million realities.</i><br><i>– Maya Angelou.</i><br></p>
+<p align="center"><br><i>Liberty, taking the word in its concrete sense, consists in the ability to choose.</i><br><i>– Simone Weil.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
