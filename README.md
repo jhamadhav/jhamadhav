@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Liberty, taking the word in its concrete sense, consists in the ability to choose.</i><br><i>– Simone Weil.</i><br></p>
+<p align="center"><br><i>You have to believe in yourself.</i><br><i>– Sun Tzu.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
