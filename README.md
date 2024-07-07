@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Freedom is not worth having if it does not connote freedom to err.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>A friend is a gift you give yourself.</i><br><i>– Robert Louis Stevenson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
