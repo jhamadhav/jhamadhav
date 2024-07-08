@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Follow your instincts. That is where true wisdom manifests itself.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>The awareness of our own strength makes us modest.</i><br><i>– Paul Cézanne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
