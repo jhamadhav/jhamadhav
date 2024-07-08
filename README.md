@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.</i><br><i>– Barack Obama.</i><br></p>
+<p align="center"><br><i>You're never a loser until you quit trying.</i><br><i>– Mike Ditka.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
