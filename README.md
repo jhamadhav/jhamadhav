@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The awareness of our own strength makes us modest.</i><br><i>– Paul Cézanne.</i><br></p>
+<p align="center"><br><i>Do good by stealth, and blush to find it fame.</i><br><i>– Alexander Pope.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
