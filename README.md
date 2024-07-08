@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do good by stealth, and blush to find it fame.</i><br><i>– Alexander Pope.</i><br></p>
+<p align="center"><br><i>If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.</i><br><i>– Barack Obama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
