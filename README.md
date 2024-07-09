@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be.</i><br><i>– Ken Venturi.</i><br></p>
+<p align="center"><br><i>A day of worry is more exhausting than a day of work.</i><br><i>– John Lubbock.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
