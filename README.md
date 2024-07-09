@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You're never a loser until you quit trying.</i><br><i>– Mike Ditka.</i><br></p>
+<p align="center"><br><i>Those who cling to perceptions and views wander the world offending people.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
