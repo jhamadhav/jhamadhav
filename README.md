@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those who cling to perceptions and views wander the world offending people.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be.</i><br><i>– Ken Venturi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
