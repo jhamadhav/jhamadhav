@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want a thing done well, do it yourself.</i><br><i>– Napoleon.</i><br></p>
+<p align="center"><br><i>We are wiser than we know.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
