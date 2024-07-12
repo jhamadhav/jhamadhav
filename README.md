@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let there be no purpose in friendship save the deepening of the spirit.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>The most certain sign of wisdom is cheerfulness.</i><br><i>– Michel de Montaigne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
