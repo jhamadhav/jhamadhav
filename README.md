@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>The wisdom of the wise, and the experience of ages, may be preserved by quotation.</i><br><i>– Isaac D'Israeli.</i><br></p>
+<p align="center"><br><i>Know how to listen, and you will profit even from those who talk badly.</i><br><i>– Plutarch.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
