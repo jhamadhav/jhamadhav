@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Know how to listen, and you will profit even from those who talk badly.</i><br><i>– Plutarch.</i><br></p>
+<p align="center"><br><i>Be slow in choosing a friend, slower in changing.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
