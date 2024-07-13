@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be slow in choosing a friend, slower in changing.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>Conditions fall apart. Persist with diligence.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
