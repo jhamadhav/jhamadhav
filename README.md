@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not so important to know everything as to appreciate what we learn.</i><br><i>– Hannah More.</i><br></p>
+<p align="center"><br><i>All great achievements require time.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
