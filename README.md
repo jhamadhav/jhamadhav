@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>It does not matter how slowly you go as long as you do not stop.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Our most intimate friend is not he to whom we show the worst, but the best of our nature.</i><br><i>– Nathaniel Hawthorne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
