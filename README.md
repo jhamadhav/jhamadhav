@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.</i><br><i>– Plutarch.</i><br></p>
+<p align="center"><br><i>The more you know yourself, the more you forgive yourself.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
