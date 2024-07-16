@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I gave my life to become the person I am right now. Was it worth it?</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Always remember that you are absolutely unique. Just like everyone else.</i><br><i>– Margaret Mead.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
