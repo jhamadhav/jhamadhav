@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.</i><br><i>– Brian O'Driscoll.</i><br></p>
+<p align="center"><br><i>I have always found that mercy bears richer fruits than strict justice.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
