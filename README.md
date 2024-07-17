@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.</i><br><i>– François de La Rochefoucauld.</i><br></p>
+<p align="center"><br><i>Real success is finding your lifework in the work that you love.</i><br><i>– David McCullough.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
