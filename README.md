@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Excellence is to do a common thing in an uncommon way.</i><br><i>– Booker T. Washington.</i><br></p>
+<p align="center"><br><i>A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.</i><br><i>– François de La Rochefoucauld.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
