@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have always found that mercy bears richer fruits than strict justice.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Excellence is to do a common thing in an uncommon way.</i><br><i>– Booker T. Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
