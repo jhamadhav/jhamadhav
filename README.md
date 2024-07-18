@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.</i><br><i>– Naguib Mahfouz.</i><br></p>
+<p align="center"><br><i>There is only one corner of the universe you can be certain of improving, and that's your own self.</i><br><i>– Aldous Huxley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
