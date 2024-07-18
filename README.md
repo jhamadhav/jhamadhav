@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is only one corner of the universe you can be certain of improving, and that's your own self.</i><br><i>– Aldous Huxley.</i><br></p>
+<p align="center"><br><i>Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.</i><br><i>– Henry Reed.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
