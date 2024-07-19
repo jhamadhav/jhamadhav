@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>From wonder into wonder existence opens.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>You can only grow if you're willing to feel awkward and uncomfortable when you try something new.</i><br><i>– Brian Tracy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
