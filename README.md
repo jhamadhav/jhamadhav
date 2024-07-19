@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change in all things is sweet.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Some people are born on third base and go through life thinking they hit a triple.</i><br><i>– Barry Switzer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
