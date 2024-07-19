@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.</i><br><i>– Henry Reed.</i><br></p>
+<p align="center"><br><i>From wonder into wonder existence opens.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
