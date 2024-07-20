@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.</i><br><i>– Michel de Montaigne.</i><br></p>
+<p align="center"><br><i>Yesterday's home runs don't win today's games.</i><br><i>– Babe Ruth.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
