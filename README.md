@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing great was ever achieved without enthusiasm.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>The sum of wisdom is that time is never lost that is devoted to work.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
