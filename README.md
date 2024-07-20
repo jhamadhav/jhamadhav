@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday's home runs don't win today's games.</i><br><i>– Babe Ruth.</i><br></p>
+<p align="center"><br><i>Nothing great was ever achieved without enthusiasm.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
