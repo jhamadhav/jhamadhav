@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Some people are born on third base and go through life thinking they hit a triple.</i><br><i>– Barry Switzer.</i><br></p>
+<p align="center"><br><i>I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.</i><br><i>– Michel de Montaigne.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
