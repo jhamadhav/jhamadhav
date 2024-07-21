@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is not a problem to be solved, but a reality to be experienced.</i><br><i>– Søren Kierkegaard.</i><br></p>
+<p align="center"><br><i>Experience is not what happens to you; it's what you do with what happens to you.</i><br><i>– Aldous Huxley.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
