@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Experience is not what happens to you; it's what you do with what happens to you.</i><br><i>– Aldous Huxley.</i><br></p>
+<p align="center"><br><i>There surely is in human nature an inherent propensity to extract all the good out of all the evil.</i><br><i>– Benjamin Haydon.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
