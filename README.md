@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friends are those rare people who ask how we are and then wait to hear the answer.</i><br><i>– Ed Cunningham.</i><br></p>
+<p align="center"><br><i>Knowledge is proud that it knows so much; wisdom is humble that it knows no more.</i><br><i>– William Cowper.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
