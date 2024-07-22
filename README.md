@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge is proud that it knows so much; wisdom is humble that it knows no more.</i><br><i>– William Cowper.</i><br></p>
+<p align="center"><br><i>True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.</i><br><i>– George Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
