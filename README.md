@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Many sophisticated, intelligent people lack wisdom and common sense.</i><br><i>– Joyce Meyer.</i><br></p>
+<p align="center"><br><i>Time changes everything except something within us which is always surprised by change.</i><br><i>– Thomas Hardy.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
