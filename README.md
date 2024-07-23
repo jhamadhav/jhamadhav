@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.</i><br><i>– Stephen Covey.</i><br></p>
+<p align="center"><br><i>Some people are born on third base and go through life thinking they hit a triple.</i><br><i>– Barry Switzer.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
