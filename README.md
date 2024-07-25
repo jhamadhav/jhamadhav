@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I can't believe that God put us on this earth to be ordinary.</i><br><i>– Lou Holtz.</i><br></p>
+<p align="center"><br><i>Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.</i><br><i>– Salman Rushdie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
