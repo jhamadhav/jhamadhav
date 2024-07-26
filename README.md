@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We choose our joys and sorrows long before we experience them.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>Friendship is essentially a partnership.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
