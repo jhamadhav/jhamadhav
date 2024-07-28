@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gratitude is not only the greatest of virtues, but the parent of all the others.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
