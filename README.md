@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never interrupt your enemy when he is making a mistake.</i><br><i>– Napoleon.</i><br></p>
+<p align="center"><br><i>Technology… the knack of so arranging the world that we don't have to experience it.</i><br><i>– Max Frisch.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
