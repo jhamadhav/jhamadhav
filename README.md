@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>To enjoy life, we must touch much of it lightly.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>Time stays long enough for anyone who will use it.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
