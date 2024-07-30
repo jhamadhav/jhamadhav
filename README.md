@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We gain the strength of the temptation we resist.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>To enjoy life, we must touch much of it lightly.</i><br><i>– Voltaire.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
