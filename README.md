@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology… the knack of so arranging the world that we don't have to experience it.</i><br><i>– Max Frisch.</i><br></p>
+<p align="center"><br><i>We gain the strength of the temptation we resist.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
