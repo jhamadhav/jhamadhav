@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>What you get by achieving your goals is not as important as what you become by achieving your goals.</i><br><i>– Zig Ziglar.</i><br></p>
+<p align="center"><br><i>I am always doing that which I cannot do, in order that I may learn how to do it.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
