@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change in all things is sweet.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>O, what a tangled web we weave when first we practice to deceive!</i><br><i>– Walter Scott.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
