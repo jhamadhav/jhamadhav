@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>O, what a tangled web we weave when first we practice to deceive!</i><br><i>– Walter Scott.</i><br></p>
+<p align="center"><br><i>Nothing ever goes away until it has taught us what we need to know.</i><br><i>– Pema Chödrön.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
