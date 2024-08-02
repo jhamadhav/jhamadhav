@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>One of the tests of leadership is the ability to recognize a problem before it becomes an emergency.</i><br><i>– Olivier Messiaen.</i><br></p>
+<p align="center"><br><i>Success is getting what you want. Happiness is wanting what you get.</i><br><i>– Dale Carnegie.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
