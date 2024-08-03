@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Failure doesn't mean you are a failure it just means you haven't succeeded yet.</i><br><i>– Robert Schuller.</i><br></p>
+<p align="center"><br><i>You have enemies? Good. That means you've stood up for something, sometime in your life.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
