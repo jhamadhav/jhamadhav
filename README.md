@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't want to achieve immortality through my work... I want to achieve it through not dying.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>Failure doesn't mean you are a failure it just means you haven't succeeded yet.</i><br><i>– Robert Schuller.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
