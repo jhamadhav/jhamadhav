@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>You have enemies? Good. That means you've stood up for something, sometime in your life.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>We must not say every mistake is a foolish one.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
