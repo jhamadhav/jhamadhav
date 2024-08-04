@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must not say every mistake is a foolish one.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>Strength does not come from physical capacity. It comes from an indomitable will.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
