@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.</i><br><i>– Joseph Campbell.</i><br></p>
+<p align="center"><br><i>Be kind whenever possible. It is always possible.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
