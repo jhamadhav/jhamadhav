@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be kind whenever possible. It is always possible.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Genuine sincerity opens people's hearts, while manipulation causes them to close.</i><br><i>– Daisaku Ikeda.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
