@@ -27,7 +27,7 @@
 
 ---
 <!-- QUOTE:START -->
-<p align="center"><br><i>Genuine sincerity opens people's hearts, while manipulation causes them to close.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>Before we acquire great power, we must acquire wisdom to use it well.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 <br>
